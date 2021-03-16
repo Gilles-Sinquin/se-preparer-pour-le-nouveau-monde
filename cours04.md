@@ -136,7 +136,6 @@ Je regrette vivement de ne pas pouvoir exprimer ce qui, dans mon coeur, a palpit
 
 Ton père : Albert Einstein ».
 
-##   
 
 #### Faisons un petit résumé sur l’impulsion: Le mystère de la Création
 
