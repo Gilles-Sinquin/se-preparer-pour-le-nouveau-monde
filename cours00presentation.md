@@ -27,7 +27,6 @@ Un grand nombre de personnes ressentent effectivement des manifestations sensori
 
 
 
-#####  *Qu'est ce que la connexion au silence?*
 
 L’état d’être sans l’ego représente la plus intense des activités Divines : le Silence.
 
@@ -41,7 +40,7 @@ L’ascension planétaire qui œuvre actuellement, nous mène vers le Soi Intemp
 
  
 
-#####  *La respiration du chakra du Cœur installe le Soi Intemporel en nous.* 
+####  La respiration du chakra du Cœur installe le Soi Intemporel en nous.
 
 Ce nouveau Souffle permet de faire respirer, précisément, le chakra du Cœur et de purifier, transmuter tout ce que nous y conduisons par nos intentions. Cette nouvelle respiration nous reconnecte à notre vraie nature, le Silence et l’Amour. Ainsi, une nouvelle loi d’attraction prend place et nous permet de vivre dans la paix, la joie et l’Amour et ainsi de convertir  la dualité en conscience unifiée ?
 
@@ -53,7 +52,7 @@ Ce nouveau Souffle permet de faire respirer, précisément, le chakra du Cœur e
 
 
 
-##### *C’est quoi l’ascension personnelle ?* 
+#### C’est quoi l’ascension personnelle ?
 
 
 
@@ -151,7 +150,7 @@ J’applique  le principe  « de la participation libre  » : si la personne dé
 
 
 
-#### **TABLE DES MATIERES DES 21 COURS**
+#### TABLE DES MATIERES DES 21 COURS
 
 - *Le changement actuel a été prédit par beaucoup de textes anciens et surtout par les mayas.*
 
@@ -190,11 +189,11 @@ J’applique  le principe  « de la participation libre  » : si la personne dé
 
 - *Qu’est-ce que l’esprit, l’information, l’amour, l’énergie vitale, la lumière céleste, les particules, l’atome ?*
 
-- *La physique quantique**.***
+- *La physique quantique*
 
 - *le vide quantique* 
 
-* *Qu’est-ce que le temps chrono et le temps Kairos ?*
+- *Qu’est-ce que le temps chrono et le temps Kairos ?*
 
 - *Le fonctionnement de la 3D.* 
 
@@ -224,11 +223,11 @@ J’applique  le principe  « de la participation libre  » : si la personne dé
 
 - *La réaction émotionnelle provoque  trois impacts :*
 
-* *D’abord un impact physique : la somatisation.*
+- *D’abord un impact physique : la somatisation.*
 
 - *Puis un impact psychologique.*
 
--  *Ensuite un impact quantique.*
+- *Ensuite un impact quantique.*
 
 - *C’est l’émotionnel qui guide les comportements.*
 
@@ -282,46 +281,26 @@ J’applique  le principe  « de la participation libre  » : si la personne dé
 - *Comment passer du stade de la conscience émotionnelle 3D au stade de la conscience évolutive 4D,  et ensuite la 5Dconscience absolue.*
 
 - *Qu’est-ce que la conscience ?*
-
--  *La conscience psychique 3D*
-
- * *La conscience évolutive  4D*
- * *La conscience vers l’absolue 5D*
-
+- *La conscience psychique 3D*
+- *La conscience évolutive  4D*
+- *La conscience vers l’absolue 5D*
 - *Nous sommes les seuls responsables de tout ce qui nous arrive.*
-
 - *En 3D on accuse l’extérieur.*
-
 - *C’est toujours nous qui avons le problème par un manque de travail intérieur.*
-
 - *Nous ne pouvons pas changer les autres mais nous pouvons nous changer nous-même.*
-
 - *Comment recouvrons-nous nos frustrations.*
-
 - *Les troubles du comportement.*
-
 - *Attention à la position du sauveur.*
-
 - *Le processus du lâcher prise ou abréaction.*
-
 - *L’éveil universel est imminent il* *a démarré son œuvre depuis le 28 octobre 2011, nous pouvons accélérer sa mise en place.*
-
 - *La Loi de l’unité (UN).*
-
 - *L’évolution de la conscience passe de l’état de conscience psychique (égocentrique) vers la conscience absolue (l’intemporalité).*
-
--  *L’information dans l’incréé.*
-
--  *Le néant, le non être, l’informé sont  coexistant avec une intelligence supérieure.*
-
+- *L’information dans l’incréé.*
+- *Le néant, le non être, l’informé sont  coexistant avec une intelligence supérieure.*
 - *Après le big bang, apparaissent le temps d’une infime fraction de seconde, les lois universelles avec leurs encodages dans la matière naissantes.*
-
 - *La gravitation, la force électromagnétique, la force nucléaire forte, la force nucléaire faible.* 
-
--  **L’énergie noire, La matière noire.*
-
+- *L’énergie noire, La matière noire.*
 - *L’univers provient d’une inflation.*
-
 - *L’univers est en expansion.*
 
 - *Le Big Crunch.*
@@ -338,13 +317,13 @@ J’applique  le principe  « de la participation libre  » : si la personne dé
 
 - *Les Mayas connaissaient le processus de l’ascension planétaire qu’ils nommaient : « L’Arbre de Vie »*
 
-- *Les  pyramides Mayas : représente l’évolution de la planète, avec ses trois stades d’évolution de conscience humaine : 3D 4D 5D.*
+- *Les pyramides Mayas : représente l’évolution de la planète, avec ses trois stades d’évolution de conscience humaine : 3D 4D 5D.*
 
 - *D’après les calculs des calendriers Mayas, Depuis le 28 octobre 2011 : c’est l’intemporalité.*
 
 - *Le calendrier maya délivre un message unique par rapport aux autres prédictions : une échéance.*
 
--  *Différence entre le calendrier Grégorien actuel et le calendrier Maya.*
+- *Différence entre le calendrier Grégorien actuel et le calendrier Maya.*
 
 - *Comment définir une Dimension.*
 
@@ -365,88 +344,49 @@ J’applique  le principe  « de la participation libre  » : si la personne dé
 - *La Quatrième Dimension commence pour la première fois à se manifester en nous depuis 1999.*
 
 - *La Quatrième Dimension n’est qu’un passage entre la Troisième et la Cinquième Dimension.* 
-
 - *Depuis 1999, beaucoup de personnes ont pu constater l’accélération de leurs quatre chakras supérieurs.* 
-
 - *Depuis2011, beaucoup de personnes ont pu constater l’accélération de leurs sept chakras.*
-
 - *De nouvelles manifestions sensorielles  peuvent être ressenties lors de la réception de l’énergie-lumière.*
-
 - *Maintenant, et cela depuis 1999, les personnes en mutation ressentent des sensations qui leurs étaient inconnues jusque-là.*
-
 - *Nous pouvons aider l’intégration des mouvements lumières célestes par la respiration du chakra du cœur.*
-
 - *La formation du Corps de lumière.*
-
 - *Actuellement en 4D l’homme se retrouve confronté avec des éveils de Kundalini qu’il faut savoir maitriser.*
-
 - *Le Feu Sacré ce canal d’Amour est le feu sacré l’Esprit Saint qui nous relie à la vibration Christique.*
-
 - *L’éveil du Feu Sacré.*
-
 - *La respiration du chakra du Cœur est à la portée de tous.*
-
 - *Expérimentons la respiration du chakra du Cœur qui nous ouvre la porte vers l’Incréé.* 
-
--  *Comment transformer la dualité en conscience unifiée par la respiration du chakra du Cœur.*
-
+- *Comment transformer la dualité en conscience unifiée par la respiration du chakra du Cœur.*
 - *La respiration du chakra du cœur se pratique en 4 phases évolutives :*
 - *1/ respiration neutralisante*
--  *2 /respiration consciente* 
--  *3/respiration sacrée*
--  4/respiration du chakra du cœur
-
--  *Le nouveau Souffle, permet de faire respirer, précisément, le chakra du Cœur. C’est une nouvelle respiration basée sur le Silence et l’Amour.*
-
+- *2 /respiration consciente* 
+- *3/respiration sacrée*
+- *4/respiration du chakra du cœur*
+- *Le nouveau Souffle, permet de faire respirer, précisément, le chakra du Cœur. C’est une nouvelle respiration basée sur le Silence et l’Amour.*
 - *Comment accélérer la libération de notre inconscient.*
-
 - *L’Interconnexion du Cœur.*
-
 - *Pratique de l’interconnexion du Cœur.* 
-
 - *Comment un thérapeute qui pratique l’interconnexion du Cœur peut aider les autres à accélérer leur mutation.*
-
 - *L’interconnexion du Cœur d’une manière inconsciente.*
--   *L’interconnexion du Cœur consciente.*
-
-* *Les êtres de lumière.*
-
+- *L’interconnexion du Cœur consciente.*
+- *Les êtres de lumière.*
 - *Dans la 4D on passe de l’égo au Cœur.* 
-
 - *Dans la 5D du Cœur à l’absolu.*
-
 - *Les sensations du Soi intemporel sont différentes de celle du Soi lumineux.*
-
 - *En 5D les techniques n’existent plus.*
-
 - *Les absences lumineuses.*
-
 - *Les Evangiles Apocryphes.*
-
 - *Nos vibrations  s’élèvent de plus en plus vers l’incréé.*
-
 - *La toute puissante Présence de l’Archange Mickaël.*
-
 - *La fin du temps.*
-
 - *Comment quitter l’ancien monde et accueillir le Nouveau Monde.*
-
 - *Ceux qui refusent le changement vibratoire et qui ne restent motivés que par leurs enrichissements matériels personnels risquent une implosion intérieure.* 
-
 - *La planète vibre chaque jour, chaque heure, chaque minute, en fréquences plus élevées avec l’Esprit Divin.* 
-
 - *La complétude.*
-
 - *Le sourire du Cœur.* 
-
 - *Le stade du Silence et de l’absolu.*
-
 - *Le grand retournement.*
-
 - *La résurrection des morts.*
-
 - *En 5D, il n’y a plus besoin de faire des intentions.*
-
 - *Comment l’homme vivra dans le Nouveau Monde.*
 - *L’homme Intemporel.*
 - *C’est l’Esprit Divin qui donne à travers celui qui donne.*
@@ -461,11 +401,8 @@ J’applique  le principe  « de la participation libre  » : si la personne dé
 - *Le Nouveau Monde s’installe progressivement…*
 - *C’est le Temps où l’Esprit Divin s’exprime en tous et dans le Tout.*
 - *Le Nouveau Monde amènera une transformation radicale des dogmes religieux.*
-
 - *Maintenant relié en direct avec l’Énergie Divine et l’Esprit Divin par son Soi Intemporel, l’Homme érige le Nouveau Monde.*
-
 - *La Nouvelle Jérusalem.* 
-
 - *La terre promise ou Age d’or.* 
 
  
