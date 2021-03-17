@@ -7,23 +7,21 @@
 
 L’Univers est une manifestation intelligente, une organisation vivante faite de milliards de mouvements perpétuels créant des champs d’énergie interconnectés les uns avec les autres, véhiculant de l’information et de l’énergie. Notre conscience est intriquée avec l’Univers entier et tout ce qui le compose, et aussi avec l’énergie Divine  qui se situe dans l’incréé au-delà du temps et de l’espace. 
 
- 
 
 #### Spiritualité et science sont maintenant réunies
 
-Notre science, qui s’est construite par opposition au domaine religieux, en négligeant l’esprit  et en ne considérant que la matière physique, a finalement abouti au constat que notre conscience pouvait, interférer sur la matière .au point de pouvoir la créer, ce qui accrédite les anciennes religions.
+Notre science, qui s’est construite par opposition au domaine religieux, en négligeant l’esprit  et en ne considérant que la matière physique, a finalement abouti au constat que notre conscience pouvait, interférer sur la matière au point de pouvoir la créer, ce qui accrédite les anciennes religions.
 
- Nos croyances nous font croire que notre enveloppe physique est limitée par nos cinq sens alors que nous sommes tous unis dans un ensemble, éternel et universel.
+Nos croyances nous font croire que notre enveloppe physique est limitée par nos cinq sens alors que nous sommes tous unis dans un ensemble, éternel et universel.
 
- Le plan Divin nos informe de l’entrée de l’humanité dans un nouveau paradigme. Que l’on peut nommer changement vibratoire. 
+Le plan Divin nous informe de l’entrée de l’humanité dans un nouveau paradigme. Que l’on peut nommer changement vibratoire. 
 
- Le changement vibratoire actuel, engendre un moment unique de conscience évolutive vers le Divin, afin de nous libérer de nos autolimitations, c’est l’émergence d’un Nouveau Monde. Une nouvelle humanité qui aurait transcendé la dualité  pour se diriger vers l’absolu. 
+Le changement vibratoire actuel, engendre un moment unique de conscience évolutive vers le Divin, afin de nous libérer de nos autolimitations, c’est l’émergence d’un Nouveau Monde. Une nouvelle humanité qui aurait transcendé la dualité  pour se diriger vers l’absolu. 
 
- Ce serait donc bien une nouvelle humanité ! Une humanité achevée, où chaque individu aurait pleinement conscience d’être intimement uni à l’ensemble de l’Univers. 
+Ce serait donc bien une nouvelle humanité ! Une humanité achevée, où chaque individu aurait pleinement conscience d’être intimement uni à l’ensemble de l’Univers.
 
 
-
-####  Un nouvel monde se crée actuellement .
+####  Un nouvel monde se crée actuellement
 
 Il concernera désormais une conscience multidimensionnelle, une conscience globale qui traitera d’un nouveau fondement : apprendre à utiliser  **le mouvement perpétuel et/ou la vibration,** fondement de l’univers matériel et immatériel où tout est lié à tout.
 
@@ -32,15 +30,13 @@ Il concernera désormais une conscience multidimensionnelle, une conscience glob
 
 La Terre vie une transformation exceptionnelle, nous évoluons de la troisième à la cinquième dimension. C’est une mutation inédite, prévue et annoncée par de nombreuses traditions. Nous passons de l’ancien monde au Nouveau Monde. Ce qui provoque un changement de conscience chez certaines personnes.
 
- 
 
-#### **L’ancien monde est la troisième dimension**
+#### L’ancien monde est la troisième dimension
 
 L’être humain est séparé de sa conscience divine. Il vit dans la réaction émotionnelle, la séparation, l’égocentrisme et le matérialisme. Tant que l’homme est enfermé dans ses réactions émotionnelles incessantes et ses croyances, il s’empêche de se relier à sa divinité et de s’épanouir dans la Conscience Unifiée. 
 
- 
 
-#### **La quatrième dimension est le prélude du Nouveau Monde**
+#### La quatrième dimension est le prélude du Nouveau Monde
 
 Une nouvelle fréquence subtile et puissante est accessible aujourd’hui aux êtres humains. Cette fréquence élevée transforme les consciences en agissant sur nos cellules, nos mémoires cristallisées et nos vieilles blessures, en les déprogrammant.
 
@@ -52,8 +48,6 @@ Pour s'élever ensuite vers la Cinquième Dimension il nous faut les comprendre,
 
  
 
- 
-
 #### Cette augmentation de fréquence est due à des mouvements perpétuels lumière céleste.
 
 Provenant du **mouvement perpétuel primordial** (la Création), sous l’œil vigilant de **l’intention Divine**  (Intelligence de l’Esprit Divin), ces mouvements perpétuels lumière céleste entraînent une transformation de la conscience. Certains individus évoluent dans la Quatrième Dimension, puis progressivement vers la 5éme Dimension depuis le 28 octobre 2011. 
@@ -62,9 +56,8 @@ Provenant du **mouvement perpétuel primordial** (la Création), sous l’œil v
 
 #### Sur le plan humain de nombreuses personnes sont devenues sensibles aux fréquences plus élevées
 
-  Par loi d’attraction ces personnes  sont attirées vers d’autres humains qui vivent les mêmes états vibratoires. Il se dévoile un désir de vérité. Les nouvelles fréquences ne supportent plus les mensonges. La crainte d’être ridicule et la dévalorisation ne sont plus les soucis de ceux qui progressent vers la 5D**.** Aujourd’hui, apparaît de plus en plus d’éveilleurs de conscience (artisans du nouveau monde).
+Par loi d’attraction ces personnes  sont attirées vers d’autres humains qui vivent les mêmes états vibratoires. Il se dévoile un désir de vérité. Les nouvelles fréquences ne supportent plus les mensonges. La crainte d’être ridicule et la dévalorisation ne sont plus les soucis de ceux qui progressent vers la 5D. Aujourd’hui, apparaît de plus en plus d’éveilleurs de conscience (artisans du nouveau monde).
 
- 
 
 #### Les consciences sont en évolution multidimensionnelle.
 
@@ -79,18 +72,15 @@ Il est en amont de la création, qui elle, est physique et quantique  les mouvem
 La connexion à l’incréé  est progressive, elle se vit en se connectant à l’Amour et en devenant cet Amour. Pour celui qui désire évoluer vers l’éternel, tout dépendra de la rigueur de son travail intérieur, car chacun a son libre arbitre.
 
 
-
 #### Actuellement, les personnes qui évoluent vers la Cinquième Dimension ressentent la présence de DIEU.
 
 DIEU  ne correspond pas à la représentation que l’on se fait de lui. Pour la majorité des personnes, Dieu est la représentation de leur désir égocentrique. Quand des personnes me disent *« Dieu est bon, il ne peut pas laisser une seule personne sur Terre pendant ce passage vers la Cinquième Dimension»*, je leur réponds «la vérité est différente : ce n’est pas Dieu qui vient à nous, sous une forme qui serait l’interprétation de nos souhaits, mais nous qui allons vers lui lorsque notre cœur s’ouvre à l’amour». Il accueille dans son royaume tous ceux qui désirent y entrer. Nous avons le libre arbitre d’y aller ou non… nous sommes les régisseurs de nos vies terrestres.
-
 
 
 #### Dans la Genèse, dans l’Apocalypse de Jean, dans de nombreuses traditions, il est mentionné l’arrivée de ce Nouveau Monde. 
 
 Le Nouveau Monde peut se définir par une caractéristique essentielle : l’Amour Divin. Celui-ci s’installe dans tous les aspects de la Création. Cependant pour que l’Amour s’installe en permanence sur la planète, il doit passer par le centre du chakra du Cœur de l’être humain.
 
- 
 
 #### Depuis le 28 octobre 2011, les expansions d’Amour véhiculées par le chakra du Cœur de l’être humain, installent le Nouveau Monde sur terre.
 
@@ -98,11 +88,8 @@ Actuellement, beaucoup de personnes évoluent vers l’éternel, d’autres stag
 
 Par exemple, les personnes qui sont dans la peur amplifient leur peur jusqu'à la phobie ou la folie ; les êtres colériques passent au stade de la violence permanente et les personnes en addiction s’auto-détruisent encore plus par leurs dépendances. Le trop plein d’activités cérébrales peut faire imploser certaines personnes (ex : rupture d’anévrisme, burn-out, crise cardiaque, suicide, cancer fulgurant, etc…).
 
- 
 
-  
-
-#### **Certains Prophètes dans le passé ont évoqués des grands bouleversements dans notre époque.**
+#### Certains Prophètes dans le passé ont évoqués des grands bouleversements dans notre époque.
 
  
 
@@ -117,24 +104,20 @@ Edgar Cayce a annoncé en 1936 qu’un nouveau cycle, se mettra en place : il vi
 Dans l’Ancien Testament de la Bible, les chapitres 11 et 12 du Livre de Daniel nous précisent qu’il y aura donc 3 années et demie d’épreuves terribles pour l’ensemble de l’humanité (1 290 jours), suivies de 1 mois et demi de bouleversements planétaires (45 jours supplémentaires) avant la fin des jours.
 
  
-
 La fin de la prophétie (chapitre 12, versets 11 à 13) dit exactement ceci : « À partir du temps où le Sacrifice perpétuel sera suspendu et où l’Abomination qui désole sera installée, il y aura 1 290 jours. Bienheureux celui qui attend et qui parvient à 1 335 jours ! Et toi, va jusqu’à la fin. Tu seras dans la paix et tu te tiendras dans ton lot si tu parviens à la fin des jours. » 
-
  
 
-#### Dans l’apocalypse selon Saint Jean, Jean évoque la ca­tas­trophe de Tchernobyl.On sait à présent que Tchernobyl, veut dire absinthe en Russe.
+#### Dans l’apocalypse selon Saint Jean, Jean évoque la ca­tas­trophe de Tchernobyl. On sait à présent que Tchernobyl, veut dire absinthe en Russe.
 
 « Le troisième ange sonna de la trompette. Et il tomba du ciel une grande étoile ardente comme un flambeau ; et elle tomba sur le tiers des fleuves et sur les sources des eaux. Le nom de cette étoile est Absinthe ; et le tiers des eaux fut changé en absinthe, et beaucoup d’hommes moururent par les eaux, parce qu’elles étaient devenues amères. » (Apocalypse selon Saint Jean, 8/10 ; 11.)
 
- 
 
 L’apocalypse vient du verbe grec apokalystô ce qui signifie révéler. C’est le dernier livre du nouveau testament qui annonce une vision de la fin des temps, le jugement et le nouveau monde à venir.
 
- 
 
 ####  Apocalypse de Saint-Jean : extrait du Chapitre 9
 
-**(1)** *Le cinquième ange sonna de la trompette. Et je vis une étoile qui était tombée du ciel sur la Terre. La clef du puits de l’abîme lui fut donnée,* **(2)** *et elle ouvrit le puits de l’abîme. Et il monta du puits une fumée, comme la fumée d’une grande fournaise ; et le soleil et l’air furent obscurcis par la fumée du puits.* **(3)** *De la fumée, sortirent des sauterelles, qui se répandirent sur la Terre ; et il leur fut donné un pouvoir comme le pouvoir qu’ont les scorpions de la Terre.* **(4)** *Il leur fut dit de ne point faire de mal à l’herbe de la Terre, ni à aucune ver­dure, ni à aucun arbre, mais seulement aux hommes qui n’avaient pas le sceau de Dieu sur le front.* **(5)** *Il leur fut donné, non de les tuer, mais de les tourmenter pendant cinq mois ; et le tourment qu’elles causaient était comme le tourment que cause le scorpion, quand il pique un homme.* **(6)** *En ces jours-là, les hommes chercheront la mort, et ils ne la trouveront pas ; ils désireront mourir, et la mort fuira loin d’eux.*
+**1** *Le cinquième ange sonna de la trompette. Et je vis une étoile qui était tombée du ciel sur la Terre. La clef du puits de l’abîme lui fut donnée,* **(2)** *et elle ouvrit le puits de l’abîme. Et il monta du puits une fumée, comme la fumée d’une grande fournaise ; et le soleil et l’air furent obscurcis par la fumée du puits.* **(3)** *De la fumée, sortirent des sauterelles, qui se répandirent sur la Terre ; et il leur fut donné un pouvoir comme le pouvoir qu’ont les scorpions de la Terre.* **(4)** *Il leur fut dit de ne point faire de mal à l’herbe de la Terre, ni à aucune ver­dure, ni à aucun arbre, mais seulement aux hommes qui n’avaient pas le sceau de Dieu sur le front.* **(5)** *Il leur fut donné, non de les tuer, mais de les tourmenter pendant cinq mois ; et le tourment qu’elles causaient était comme le tourment que cause le scorpion, quand il pique un homme.* **(6)** *En ces jours-là, les hommes chercheront la mort, et ils ne la trouveront pas ; ils désireront mourir, et la mort fuira loin d’eux.*
 
 **1** *–* L’étoile tombée du ciel :
 
@@ -190,7 +173,7 @@ Est pétrifiée de froid. Choisissez !
 
  
 
-**Jésus parle d’une période chaotique qui précède la fin des temps dans LES DISCOURS ESCHATOLOGIQUES.**
+#### Jésus parle d’une période chaotique qui précède la fin des temps dans LES DISCOURS ESCHATOLOGIQUES.
 
 *(Les discours eschatologiques sont  longs  je n’ai pu diffuser que quelques extraits si vous le désirez Vous pouvez retrouver l’ensemble des discours dans la bible.)*
 
