@@ -1,12 +1,6 @@
 ## Cours 2 : Se préparer pour le Nouveau Monde                         
 
 
-<<<<<<< HEAD
-=======
-
-
-
->>>>>>> 5b5d5156db56db3fe59878328267bb02a4b533d5
 #### La création, provient d’un mouvement perpétuel, nommée par d’autres la «Matrice, le Créateur etc…». Tous les physiciens ne sont pas en accord avec cette théorie !
 
 Pour certains physiciens, la création provient d’une matrice qui aurait provoqué le big bang, d’autres ne reconnaissent pas ce big bang comme une réalité.
