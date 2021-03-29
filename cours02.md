@@ -1,7 +1,6 @@
 ## Cours 2 : Se préparer pour le Nouveau Monde                         
 
 
-
 #### La création, provient d’un mouvement perpétuel, nommée par d’autres la «Matrice, le Créateur etc…». Tous les physiciens ne sont pas en accord avec cette théorie !
 
 Pour certains physiciens, la création provient d’une matrice qui aurait provoqué le big bang, d’autres ne reconnaissent pas ce big bang comme une réalité.
@@ -12,13 +11,11 @@ L’Esprit Divin est universel, sa fréquence divine descend jusqu’au cœur de
 
 L’affirmation que le vide quantique est à la fois un champ d’énergie virtuel associé à un champ magnétique primordial coexistant avec l’Esprit Divin, est condamnée à rester une hypothèse, car aucun appareil ne pourra détecter l’Esprit. Par contre, certaines personnes ayant des perceptions ultra subtiles et qui sont dans le Soi intemporel quand ils se mettent en respiration du chakra du Cœur, peuvent ressentir l’unification avec l’Univers et l’incréé. Ces personnes décrivent l’incréé comme un immense champ doté d’un silence total, associé à une plénitude (l’Energie Divine, l’Amour). Même si dans l’incréé rien ne se manifeste sous forme concrète, dans sa plénitude subtile et unifiée il contient l’ADN de toutes existences.
 
-  
 
 #### Un esprit, supérieur serait à l’origine de la création.
 
 Certains scientifiques se sont rendu compte que la fabuleuse organisation de l’Univers devait avoir pour origine une intelligence : ce fut le cas d’Albert Einstein qui adressa le 24 janvier 1936 ces quelques lignes à un enfant qui lui demandait si les scientifiques priaient Dieu : il lui répondit « *Tous ceux qui sont sérieusement impliqués dans la science finiront par être convaincus qu’un esprit se manifeste dans les lois universelles, un esprit immensément supérieur à celui de l’homme.* » 
 
- 
 
 #### Cette intelligence répond instantanément à la moindre de nos sollicitations.
 
@@ -26,7 +23,6 @@ Nous passons notre temps à solliciter cette Intelligence par nos intentions, d�
 
 Nous devons donc mieux nous connaître pour identifier, conscientiser, assumer et réaliser les aspirations de notre âme, pour enfin retrouver notre Réalité Divine. Nous devons être bien conscients de nos intentions et les assumer : là est notre responsabilité de créateurs, sachant que le but de la Création est l’expansion de l'Amour Divin.
 
- 
 
 #### D’autres théories et thèses de grands scientifiques et penseurs contemporains confirment cette intelligence et Esprit supérieur.
 
@@ -34,7 +30,6 @@ Une thèse sur l’Univers nous est proposée par **Ervin Laszlo**, philosophe e
 
 Selon Laszlo, l’Univers est un système homogène dont la spécificité est l’information qu’il conçoit, conserve et véhicule et qui en relie toutes les parties. Ainsi tout est interconnecté par l’information omniprésente. Dans l’Univers, cette information peut être conçue comme un champ invisible. Laszlo appelle ce champ universel d’information «le champ akashique ». 
 
- 
 
 Selon les spirituels de l’Inde, l’origine de l’Univers serait l’Akasha : tout ce qui a une forme évolue à partir de l’Akasha. L’Akasha sous-tend toute chose et devient toutes choses, il est réel mais on ne peut le percevoir avant qu’il ne devienne matière. (*Cette vision akashique peut se rapprocher de la théorie du vide quantique. C’est le champ originel dont ont émergé les particules, les atomes, les corps célestes, les corps humains et toutes choses visibles.)* 
 
@@ -52,7 +47,6 @@ A la fin de sa vie David Bohm déclara : « *le champ du fini est tout ce que no
 
 *Ce qui est réellement vivant dans l’être vivant c’est cette énergie de l’Esprit et elle n’est jamais née et jamais ne mourra.* » 
 
- 
 
 ####  Il y a plus d’un siècle, le physicien Allemand Max Planck, légendaire fondateur de la physique quantique déclarait :
 
@@ -60,13 +54,11 @@ A la fin de sa vie David Bohm déclara : « *le champ du fini est tout ce que no
 
 Les théories et hypothèses de ces  chercheurs sont intéressantes car elles mettent en évidence le rôle fondamental de l’Esprit précédant toutes choses.
 
- 
 
 #### Beaucoup de personnes pensent que Dieu est le créateur de toutes choses …
 
 Dieu et la Création sont associés, l’information originelle vient de l’Incréé et la création est une Force (le mouvement perpétuel) qui transforme l’information originelle en Energie Divine et/ou Amour, énergie vitale, lumière céleste et matière. Nous le développerons plus loin dans les cours.
 
- 
 
 #### Les personnes en début de chemin spirituel font souvent un amalgame entre Dieu et la Lumière. Ils parlent de la Lumière en pensant parler de Dieu, voyons les différences.
 
@@ -74,18 +66,16 @@ La Lumière Céleste est le véhicule cosmique de Dieu pour la matière. La Lumi
 
 La lumière céleste ne peut se percevoir qu’à travers nos nouvelles perceptions qui captent l’invisible.
 
-Dieu est en amont de la lumière céleste. Il n’est pas matérialisé, il est Esprit (intelligence), il ordonne l’intention. L’intention provoquera l’impulsion qui créera le mouvement perpétuel et/ou la vibration.  
+Dieu est en amont de la lumière céleste. Il n’est pas matérialisé, il est Esprit (intelligence), il ordonne l’intention. L’intention provoquera l’impulsion qui créera le mouvement perpétuel et/ou la vibration.
 
-  
 
 #### Dans l’ancien testament, Dieu est représenté comme celui qui juge, qui punit, qui se venge. On parle beaucoup de la crainte de Dieu, ce qui est une contradiction, avec le Dieu d’Amour du nouveau testament. 
 
- Dans l’ancien testament, qui a été créé avant l’arrivée de Jésus, on représente Dieu comme un punisseur vengeur et même jaloux. Il y a plus de 580 références à la colère de Dieu dans la bible. Aussi, il y est plus évoqué sa colère que son Amour ou sa miséricorde. 
+Dans l’ancien testament, qui a été créé avant l’arrivée de Jésus, on représente Dieu comme un punisseur vengeur et même jaloux. Il y a plus de 580 références à la colère de Dieu dans la bible. Aussi, il y est plus évoqué sa colère que son Amour ou sa miséricorde. 
 
 C’est l’interprétation des hommes, influencés par leur égo, qui sont responsables de cette vision erronée. Même encore maintenant, en 3D, beaucoup de personnes interprètent Dieu et le crée intérieurement suivant leurs désirs, ils le voient suivant l’image qu’ils s’en font.
 
- Dans le ***nouveau testament*** : Jésus parle de Dieu comme celui qui dispense l’Amour, la notion de punition divine est inexistante. Jésus devient un messager qui dévoile la vérité et réajuste l’interprétation égocentrique que l’on a faite sur le Dieu de l’ancien testament.
-
+Dans le ***nouveau testament*** : Jésus parle de Dieu comme celui qui dispense l’Amour, la notion de punition divine est inexistante. Jésus devient un messager qui dévoile la vérité et réajuste l’interprétation égocentrique que l’on a faite sur le Dieu de l’ancien testament.
 
 
 **Ce Dieu d’Amour… Peut-on en décrire la substance ?** 
@@ -96,25 +86,23 @@ Par ailleurs, je trouve intéressantes certaines interprétations de nos ancêtr
 
 Le verbe veut dire vibration. Toute création commence par un mouvement vibratoire qui peut avoir différentes fréquences (on parle dans ce cas de fréquences vibratoires). Après une accélération, la vibration selon sa nouvelle fréquence, peut être qualifiée de vibration subtile ou de vibration dense selon le mouvement perpétuel dans lequel elle se trouve.
 
-​                                          
 
 #### Voici quelques passages de la Bible (dans l’Évangile selon Saint Jean) qui évoquent que la première manifestation fut le verbe (ou vibration).
 
 
-
-**Jean 1:1 -** **Au commencement était le Verbe et le Verbe était avec Dieu et le Verbe était Dieu.** 
+**Jean 1:1 - Au commencement était le Verbe et le Verbe était avec Dieu et le Verbe était Dieu.** 
 
 *Selon la bible, la Création a commencé par une vibration qui serait associée à l’œuvre de Dieu.*
 
-**Jean 1:3 -** **Tout fut par lui, et sans lui rien ne fût.**
+**Jean 1:3 - Tout fut par lui, et sans lui rien ne fût.**
 
 *Toute création commence par une vibration et suivant son accélération, elle devient amour, énergie vitale, lumière Céleste, particule, ou matière.*
 
-**Jean 1:4 -** **Ce qui fit en lui était la vie, et la vie était la lumière des hommes.** 
+**Jean 1:4 - Ce qui fit en lui était la vie, et la vie était la lumière des hommes.** 
 
 *La vibration génère l’énergie et devient biologie. Mais pour que celle-ci se maintienne, il faut qu’elle soit en cohésion avec l’Esprit Divin, l’Amour, l’énergie vitale et la lumière Céleste. L’homme, sans l’Esprit Divin, l’Amour, l’énergie vitale et son âme constituée de lumière, ne serait que de la matière inanimée.*
 
-**Jean 1:14 -** **Et le Verbe s'est fait chair et il a habité parmi nous, et nous avons contemplé sa gloire, gloire qu'il tient de son Père comme Fils unique, plein de grâce et de vérité.**
+**Jean 1:14 - Et le Verbe s'est fait chair et il a habité parmi nous, et nous avons contemplé sa gloire, gloire qu'il tient de son Père comme Fils unique, plein de grâce et de vérité.**
 
 *Après une intention ordonnée par Dieu le Père, le verbe (la vibration, le mouvement perpétuel) subit une impulsion et, une accélération, qui se manifeste d’abord par de l’Amour, de l’énergie vitale, de la lumière puis des particules et enfin par de la matière (atomes et molécules) se conformant aux sauts quantiques évolutionnaires, le Verbe devient cellule et forme l’homme (la chair).*
 
@@ -122,13 +110,11 @@ Le verbe veut dire vibration. Toute création commence par un mouvement vibratoi
 
 *Dans la Genèse, par ces écrits, nous pouvons constater que pour la création tout est vibration subtile ou dense (matière), en fonction de l’impulsion et de l’accélération que la vibration reçoit.*
 
- 
 
 ####  Comment pouvons-nous nous servir de l’incréé pour créer ?
 
  Nous sommes au prologue d’une révolution magistrale par l’hypothèse de la théorie du mouvement perpétuel, ce qui prouve que les religions anciennes avaient découvert et ont toujours défendu que tout est énergie et que l’énergie est produite par une force en mouvement.
 
- 
 
 ***Marcel Violet (1886-1973) ingénieur chercheur donne sa vision sur le concept du mouvement.***
 
@@ -140,7 +126,6 @@ ce qui est en train de transformer nos connaissances, c’est l’apparition des
 
 On peut affirmer aujourd’hui que la nature a horreur de l’immobilité et que tout, absolument tout est mouvement et mouvement perpétuel entretenu. »
 
- 
 
 #### Tout agit sur tout. Tout est attraction et répulsion. Tout est vibration.
 
@@ -148,19 +133,15 @@ Tout vibre autour de nous à des vitesses appelées fréquences et selon des lon
 
 Certaines vibrations sont sensibles à nos sens, comme les sons, la chaleur, la lumière visible. 
 
- 
 
 Mais il existe des fréquences subtiles que nous venons juste de percevoir depuis 1999, la lumière céleste et les mouvements lumineux, qui accélèrent la fréquence de nos chakras. 
 
- L’Amour, accélère également la fréquence de nos chakras par le mouvement perpétuel  primordial.
+L’Amour, accélère également la fréquence de nos chakras par le mouvement perpétuel  primordial.
 
 Nous sommes des êtres vibratoires en mouvement, dans un Univers lui aussi en vibration et en mouvement constant entre le fini et l’infini.
 
 L’Esprit, L’Amour, L’énergie vitale et la lumière céleste sont l’essence de l’Univers comme elles sont celles de notre être.
 
- 
-
- 
 
 #### Une autre version, le taoïsme, nous révèle que l’origine du monde vient du souffle (mouvement éternel et /ou énergie).
 
@@ -174,11 +155,10 @@ Il est représenté comme une force qui se répand, anime le monde en un mouveme
 
 *(On retrouve là encore la notion de mouvement perpétuel qui serait une vibration. Cette vibration prend une forme suivant l’impulsion, car il est dit dans ce texte Tao que* *«* *le souffle, s'il est condensé, est vie (matière et biologie) et s'il est dilué, (vibration), il est potentiel infini* *».* *Il est dans ce cas un potentiel qui attend une manifestation (une création) par une impulsion et une accélération.)* 
 
- 
 
 #### Pour qu’il y ait création il est indispensable qu’il y ait impulsion : (la dualité : attraction et répulsion).
 
- Au commencement, il y a le UN : le non-être, le Silence, l’incréé, l’immobilité, l’information originel, 
+Au commencement, il y a le UN : le non-être, le Silence, l’incréé, l’immobilité, l’information originel, 
 
 L’intelligence de l’Esprit Divin (souhaite), ce souhait est une intention,
 
@@ -192,15 +172,14 @@ L’opposition des deux : le non-être et la dualité (attraction/répulsion), q
 
 La dualité, subit forcément la loi du UN (l’Esprit Divin dans l’incréé), d’où l’information en est tirée.
 
- L’énergie Divine primordiale (l’Amour) est d’ordre magnétique, elle résulte de l’impulsion (la dualité attraction et répulsion). 
+L’énergie Divine primordiale (l’Amour) est d’ordre magnétique, elle résulte de l’impulsion (la dualité attraction et répulsion). 
 
-L’impulsion, est en fait une matrice (le mouvement perpétuel, la dualité: attraction/répulsion) qui, suivant l’accélération du mouvement ordonnée par l’intention, attire l’information originelle la transforme, la conserve et l’expanse soit en champ magnétique : l’Amour, en champ énergie vitale, en champ lumière céleste, en champ matière.  
+L’impulsion, est en fait une matrice (le mouvement perpétuel, la dualité: attraction/répulsion) qui, suivant l’accélération du mouvement ordonnée par l’intention, attire l’information originelle la transforme, la conserve et l’expanse soit en champ magnétique : l’Amour, en champ énergie vitale, en champ lumière céleste, en champ matière.
 
 La dualité magnétique s’équilibre par un rapprochement (attraction) et par un éloignement (répulsion), servant ainsi de conservateur et d’expanseur. Ainsi, l’amour est éternel et s’expanse à l’infini : dans le Tout, le manifeste et l’invisible.
 
 Le mouvement perpétuel primordial s’auto-alimente en permanence, la pérennité des mouvements perpétuels, qui s'instaure automatiquement du fait de cette dualité magnétique maintient en constance la création.
 
-  
 
 #### Comment peut-on imaginer l’invisible ? Car même si dans la quatrième dimension nos perceptions sensorielles évoluent, il n’en reste pas moins que nous sommes limités lorsqu’il s’agit de décrire l’invisible.
 
@@ -208,14 +187,12 @@ Nous ne pouvons qu’imaginer. La parole descriptive serait réductrice. On peut
 
 Les champs constitué de milliards de mouvements tous inter-reliés, s’auto alimente par une suite ininterrompue d’intentions. À chacune correspond une impulsion, qui génère (par giration et polarisation) des champs d’énergie différents. 
 
- 
 
 ####  Il y a des milliards de champs voici : les quatre principaux champs de l’univers invisible.
 
 En amont de la création il y a le champ unitaire (l’Incréé, le Silence, l’information originel ou repose l’Esprit Divin) 
 
 Dans la création il y a le champ primordial magnétique (l’Amour) ; le champ d’énergie vitale (le prâna) ; le champ lumière céleste (domaine super-lumineux) et le champ sous-lumineux : l’univers visible. 
-
  
 
 #### Le champ perpétuel primordial.
@@ -228,9 +205,8 @@ Cette accélération génèrera le champ du mouvement perpétuel primordial.
 
 Ce champ dual (attraction/répulsion) produira l’énergie Divine et/ou l’Amour, l’énergie Divine est la première manifestation de la création. 
 
- Le champ d’Amour primordial est en fait une trame de milliards de mouvements perpétuels duals interconnectés les uns avec les autres, ce qui forme l’Infini.
+Le champ d’Amour primordial est en fait une trame de milliards de mouvements perpétuels duals interconnectés les uns avec les autres, ce qui forme l’Infini.
 
- 
 
 #### Le champ perpétuel vital.
 
@@ -238,15 +214,15 @@ L’Esprit Divin ordonne par l’intention, une impulsion un peu plus accélér�
 
 Ce champ dual, est composé par l’énergie de vie intelligente (le prâna). Cette énergie vitale étant le principe fondamental des ***lois universelles*** qui régissent toute l’organisation de l’Univers visible et invisible et qui sont : 
 
-1/ ***L’Accroissement* :** le vivant croît en permanence.
+1/ ***L’Accroissement*** : le vivant croît en permanence.
 
- 2/ ***La survie*** de toutes les espèces, qui cherchent à se reproduire pour assurer leur pérennité.
+2/ ***La survie*** de toutes les espèces, qui cherchent à se reproduire pour assurer leur pérennité.
 
-3/ ***L’auto-guérison* :** processus naturel d’auto-protection et d’auto-régénération de l’organisme. 
+3/ ***L’auto-guérison*** : processus naturel d’auto-protection et d’auto-régénération de l’organisme. 
 
-4/ ***Le cycle* :** tout est soumis aux cycles croissance/décroissance. Exemple : le cycle des saisons (pour l’éclosion végétale : il y a bourgeons, floraison, dépérissement et repos hivernal). Cycle jour/nuit, veille/sommeil…
+4/ ***Le cycle*** : tout est soumis aux cycles croissance/décroissance. Exemple : le cycle des saisons (pour l’éclosion végétale : il y a bourgeons, floraison, dépérissement et repos hivernal). Cycle jour/nuit, veille/sommeil…
 
-5**/ *L’ordonnance* :** toute l’organisation de l’Univers fait partie d’un plan divin, intelligent et évolutif (l’évolution sur la Terre a commencé par le règne minéral, le végétal, puis sont venus l’animal, l’Homme sous-lumineux 3D, l’Homme lumineux4D, l’Homme supra-lumineux5D). 
+5/ ***L’ordonnance*** : toute l’organisation de l’Univers fait partie d’un plan divin, intelligent et évolutif (l’évolution sur la Terre a commencé par le règne minéral, le végétal, puis sont venus l’animal, l’Homme sous-lumineux 3D, l’Homme lumineux4D, l’Homme supra-lumineux5D). 
 
 Apres l’Esprit et l’Amour, L’énergie vitale est à la base de tout le vivant qui s’anime et se transforme, elle conditionne toute l’évolution vers l’intemporalité. 
 
@@ -266,7 +242,6 @@ Ce paradis est décrit aussi par toutes les personnes qui ont vécu une expérie
 
 Actuellement, ce champ est aussi sollicité par la conscience humaine lors de la respiration du chakra du Cœur. Cette respiration  aide les êtres humains à accélérer leur mutation, et créer leur corps de lumière pour passer à la 4D puis ensuite à la 5 D.
 
- 
 
 Le champ unitaire, le champ magnétique primordial, le champ d’énergie vitale et le champ lumière céleste sont éternels, le temps n’y existe pas.
 
@@ -279,7 +254,6 @@ Le temps n’apparaît que lors de la manifestation, de la matière (domaine sou
 L’Esprit Divin, ordonne une intention, s’ensuit une impulsion qui provoque une accélération fulgurante de l’information originel. Pendant cette accélération des milliards de mouvements perpétuels créent de l’énergie dense, (particules, atomes et matière) qui se véhiculent  par des champs électromagnétiques dans le but de créer l’univers visible : ce processus d’accélération gigantesque se nomme le big bang. 
 
 
-
 #### Le champ sous-lumineux (l’univers visible), est, quant à lui, le fruit de la création matière. Il comprend la matière et les organismes vivants.
 
 Le mouvement perpétuel sous lumineux par l’électromagnétisme produit, pour l’évolution biologique de la cellule jusqu’au néocortex, une polarité de duplication, c’est-à-dire une création duale mâle et femelle : le plus et le moins (polarités électriques), attraction et répulsion (polarités magnétiques), et à partir de là, toutes les formes de dualité qui composent la création : Yin-Yang, inspiration-expiration (rythme respiratoire), anabolisme-catabolisme (rythme métabolique), diastole-systole (rythme cardiaque), solution-coagulation, concentration-dissipation, féminin-masculin, jour-nuit, haut-bas, avant-après, etc. 
@@ -287,5 +261,4 @@ Le mouvement perpétuel sous lumineux par l’électromagnétisme produit, pour 
 Cette polarité initiale, qui manifeste la dualité, est la condition d’existence même de toute notre réalité 3D par la duplication. Et notre but, à partir de là, est de prendre cette dualité pour base de départ afin de retrouver, par notre conscience et notre volonté, l’Unité originelle pour atteindre l’ascension vers l’intemporalité. 
 
 L’Incréé et la Création sont tous deux réunis dans l’invisible, par des champs différents. Ils n’ont pas la même fonction, mais ils ont le même objectif : ***l’intention*** d’expanser l’Amour.
-
 
