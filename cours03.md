@@ -163,7 +163,7 @@ Pour faire court sur la ***physique quantique*,** on peut dire qu’elle décrit
 
  
 
- **Notre conscience est  aussi un créateur.**
+#####  Notre conscience est  aussi un créateur.
 
 Lorsque l’on pense il y a création. Par exemple lorsque nous créons un scénario imaginaire, nous sommes un créateur sous-lumineux car nous produisons de l’énergie dense qui donne de la vie illusoire au scénario. 
 
