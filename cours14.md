@@ -1,4 +1,4 @@
-***Cours 14 : se préparer pour le Nouveau Monde par la connexion au Silence.\***  
+### Cours 14 : se préparer pour le Nouveau Monde .
 
  
 
@@ -10,13 +10,13 @@ La respiration du chakra du Cœur sera efficace pour remédier à toutes sortes 
 
  
 
-***La respiration du chakra du Cœur méthode est efficace pour remédier aux troubles de panique.\*** 
+##### La respiration du chakra du Cœur méthode est efficace pour remédier aux troubles de panique. 
 
 Toute personne en proie à des troubles de panique est obligatoirement dans un fonctionnement émotionnel à dominance de réactions amplifiées. Pour pallier l’urgence, concentrons-nous sur la technique de maitrise instantanée pour stopper le scénario imaginaire. Mais la cause est avant tout la réaction amplifiée qu’il faudra apprendre à maîtriser par une pacification du cerveau limbique en répétant la respiration du chakra du Cœur.  
 
  
 
-***Pour les phobies on utilisera la technique de maitrise instantanée.\***
+##### Pour les phobies on utilisera la technique de maitrise instantanée.
 
 Les phobies spécifiques : par exemple, la peur de prendre l’ascenseur, peur d’un objet, d’un animal ou d’une situation spécifique. 
 
@@ -30,27 +30,21 @@ Les phobies spécifiques : par exemple, la peur de prendre l’ascenseur, peur d
 
 Mais l’origine de toutes phobies est avant tout la surexcitation de l’amygdale cérébrale qu’il faudra apprendre à pacifier par la respiration du chakra du Cœur. 
 
- 
+   
 
- 
-
- 
-
-***La respiration du chakra du Cœur est très efficace pour aider à résoudre les dépendances.\*** 
+##### La respiration du chakra du Cœur est très efficace pour aider à résoudre les dépendances.
 
 La dépendance a commencé un jour par la fixation d’une mémoire lors d’un désir qui devient une exigence supérieure en se répétant. La dépendance se caractérise par le besoin incontrôlable d’un désir, suivi de sa recherche compulsive ; le sujet n’est pas libre, il est dépendant, dès que se manifeste en lui ce besoin impérieux, il est totalement submergé sans possibilité de maîtrise. L’émotion se manifestera par une sensation en fonction de l’intensité réactionnelle de chaque individu ; ensuite, lors de la phase d’épuisement réactionnelle, le déplaisir va s’installer et devenir aussi intense que l’état d’amplification du plaisir.
 
  
 
-***Comment maîtriser un plaisir dominant ?\***
+##### Comment maîtriser un plaisir dominant ?
 
 Dans le cas d’une forte dépendance comme celle de l’alcool, lorsque la sensation de désir  que procure l’absorption d’alcool ressurgit de l’inconscient, il devient déclencheur d’une envie obsessionnelle  qui domine totalement la conscience du sujet. Pour neutraliser l’envie, il convient de pratiquer la technique de maitrise instantanée ce qui stoppe l’excès de libération de la dopamine ainsi le sujet passe en phase d’épuisement réactionnelle, Une fois la pacification du mental obtenu, on utilise l’attention pour passer à la transmutation émotionnelle. C’est-à-dire on se met en respiration du chakra du cœur et on met le désir dans la respiration jusqu’à sa dissolution. Pendant la transmutation, On fait UN avec le désir.
 
  
 
- 
-
-***Les pensées obsédantes\***
+#####  Les pensées obsédantes.
 
 Quand une pensée imaginaire surgit dans la conscience et qu’elle nous donne la vision d’une situation future terrifiante, elle crée une somatisation dans le corps par une réponse hormonale devenue excessive. Pour la neutraliser, il s’agit, là encore, d’employer la technique de maitrise instantanée on met les sensations liées au scénario dans la respiration du chakra du Cœur jusqu’à dissolution.
 
@@ -58,19 +52,19 @@ La respiration du chakra du Cœur sera efficace à long terme pour pacifier tota
 
  
 
-***L’insomnie et la respiration du chakra du Cœur.\*** 
+##### L’insomnie et la respiration du chakra du Cœur.
 
 Cette respiration sera efficace pour aider les personnes atteinte d’insomnie. Elle a souvent pour cause principale un état constant de réaction amplifiée. Au lieu de réagir en refusant les insomnies, on se servira de la situation comme moyen de travail intérieur. On utilisera la respiration neutralisante, la pacification de l’amygdale fera cesser l’agitation due aux excès d’hormones. Ensuite on utilisera la respiration du chakra du cœur  jusqu’à l’endormissement.
 
  
 
-***La respiration du chakra du Cœur, est très efficace lorsque la personne a encore son amygdale cérébrale très réactionnelle.\*** 
+##### La respiration du chakra du Cœur, est très efficace lorsque la personne a encore son amygdale cérébrale très réactionnelle.
 
 Elle permet de stopper rapidement une intense activité cérébrale. Après un travail quotidien de respiration du chakra du Cœur,  l’amygdale reçoit beaucoup plus de fréquences lumière dans les circuits cérébraux et neurobiologiques. Comme la libération d’hormones devient quasi-inexistante, elle est maintenant suffisamment pacifiée pour ne plus entrer en réaction aveugle.
 
  
 
-***Nous pouvons explorer nos attachements et nos conditionnements dans notre inconscient.\***
+##### Nous pouvons explorer nos attachements et nos conditionnements dans notre inconscient.
 
 Grâce à la Respiration du chakra du Cœur, nous vivons de plus en plus la déprogrammation de nos inconscients.
 
@@ -80,7 +74,7 @@ Si nous rencontrons un souvenir désagréable, mettons nous en respiration du C�
 
  
 
-***La respiration du chakra du Cœur permet aussi de faire circuler l’énergie vitale dans les méridiens.\***
+##### La respiration du chakra du Cœur permet aussi de faire circuler l’énergie vitale dans les méridiens.
 
 Nous savons maintenant que tous les déséquilibres que nous vivons actuellement proviennent du passé et d’un excès de tension de notre cerveau limbique. Cela engendre des blocages éthériques et énergétiques qui empêchent l’énergie vitale de circuler correctement.
 
@@ -92,41 +86,7 @@ Lorsque nous aurons pris l’habitude au moment où nous ressentirons un blocage
 
 Actuellement, plutôt que de chercher à vaincre et éliminer une activité cérébrale par l’ego, nous avons la possibilité par la respiration du chakra du Cœur de faire disparaître toutes activités mentales venant nous déstabiliser émotionnellement et ne plus  redonner de la vie aux mémoires du passé.
 
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
+​             
 
 **Pendant l’ouverture du soi intemporel, des moments de grande tristesse apparaissent, ce qui signe la consumation des énergies denses et de l’égo.**
 
@@ -136,7 +96,7 @@ Certains ressentent leur humeur osciller par des moments de grâce et d’énerv
 
  
 
-***Quand le vieux moi cherche à résister pour ne pas mourir, pendant ce sursaut d’orgueil, peuvent avoir lieu des déséquilibres psychologiques.\*** 
+##### Quand le vieux moi cherche à résister pour ne pas mourir, pendant ce sursaut d’orgueil, peuvent avoir lieu des déséquilibres psychologiques.
 
 Car avec nos nouvelles perceptions, il y a amplification des sensations agréables comme désagréables.
 
@@ -146,7 +106,7 @@ Ainsi donc, si nous faisons de la résistance nous allons être confrontés de m
 
  
 
-***La première des réalités pour vivre l’Amour au quotidien est d’arrêter de douter et de juger.\***
+##### La première des réalités pour vivre l’Amour au quotidien est d’arrêter de douter et de juger.
 
 Quand nous doutons, nous sommes dans une création de mouvement sous lumineuse, nous donnons de la vie à une illusion et nous établissons une limite à la libre circulation de l’Amour dans notre être.
 
@@ -156,7 +116,7 @@ C’est la même chose pour le jugement hâtif on peut émettre une opinion diff
 
  
 
-***Dans cette période de grand changement vibratoire, le normal et l’anormal comme en 3D, n’existe plus.\***
+##### Dans cette période de grand changement vibratoire, le normal et l’anormal comme en 3D, n’existe plus.
 
 Tout est conscientisé. Nous vivons actuellement des périodes de résurgences qui affectent notre esprit mais aussi des périodes de pleine conscience, ce qui est très déstabilisant pour certains. Pour vibrer avec le nouveau monde, nous devons lâcher prise, faire confiance au Divin, Nous devons accueillir ces nouvelles fréquences et nous détacher de l’ego qui nous maintient dans la souffrance…
 
@@ -164,20 +124,13 @@ La conscience est maintenant reliée au centre du chakra du Cœur. Tous les jour
 
  
 
- 
+​    
 
- 
-
- 
-
- 
-
-**Cette respiration du chakra du Cœur, véritable accélérateur et amplificateur de nos intentions est un outil d’Ascension vers la Cinquième dimension.**
+#### **Cette respiration du chakra du Cœur, véritable accélérateur et amplificateur de nos intentions est un outil d’Ascension vers la Cinquième dimension.**
 
 
- 
 
-***Ce qui est extraordinaire dans la respiration du chakra du Cœur, c’est qu’à l’inverse de certaines méditations qui demandent une maîtrise du mental par des efforts soutenus, cette  respiration se pratique sans efforts particuliers et se vit doucement comme une grâce, en accueillant et en acceptant simplement l’énergie Divine par le Soi intemporel.\***
+##### Ce qui est extraordinaire dans la respiration du chakra du Cœur, c’est qu’à l’inverse de certaines méditations qui demandent une maîtrise du mental par des efforts soutenus, cette  respiration se pratique sans efforts particuliers et se vit doucement comme une grâce, en accueillant et en acceptant simplement l’énergie Divine par le Soi intemporel.
 
 Pour cela, lorsque la personne ressent une énergie dense de quelque nature qu’elle soit (une déprogrammation, comme une mémoire du passé qui ressurgit et qui provoque une légère relecture lors d’une phase d’intégration, une pensée angoissante, une colère, une création mentale imaginaire, un doute etc…), la personne se connecte au centre du chakra du Cœur et se laisse pénétrer en profondeur par la respiration du Cœur. Cette respiration purifie, et transmute tout ce que la personne y conduit par son intention. 
 

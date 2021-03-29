@@ -1,28 +1,24 @@
-***Cours 11 : se préparer pour le Nouveau Monde par la connexion au\***                                           
+### Cours 11 : se préparer pour le Nouveau Monde.                                        
 
-​                        ***Silence.\***
+​                       
 
  
 
 **L’accélération de la fréquence des chakras provoque aussi une pression au troisième œil et une lourdeur au coronal.** 
 
- 
+ C'est ce qui indique que des mini-canaux lumière se mettent en place dans les circuits neurobiologiques cérébraux pour recevoir les fréquences plus élevées de la lumière Céleste, et la glande pinéale grossie au fur et à mesure de notre élévation de conscience.
 
-C'est ce qui indique que des mini-canaux lumière se mettent en place dans les circuits neurobiologiques cérébraux pour recevoir les fréquences plus élevées de la lumière Céleste, et la glande pinéale grossie au fur et à mesure de notre élévation de conscience.
-
- 
-
-Tous ces processus, vécus lors de l’intégration du changement vibratoire, vont permettre la création progressive de notre Corps de lumière et suivra l’ouverture de notre soi intemporel.
+ Tous ces processus, vécus lors de l’intégration du changement vibratoire, vont permettre la création progressive de notre Corps de lumière et suivra l’ouverture de notre soi intemporel.
 
  
 
-***Petite aparté sur la glande pinéale :\***
+##### Petite aparté sur la glande pinéale .
 
 Dans la mythologie védique du Yoga, la glande pinéale est associée, tantôt au chakra Ajna ou 3ème œil, tantôt au Sahasrara chakra de la Couronne.
 
  
 
-***Les défenseurs des capacités transcendantales de cet organe la considèrent comme une antenne.\*** 
+##### Les défenseurs des capacités transcendantales de cet organe la considèrent comme une antenne.
 
 La glande pinéale porte, dans sa constitution, des cristaux d’apatite. Ces cristaux vibreraient en fonction des ondes électromagnétiques captées, ce qui expliquerait, entre autres phénomènes, la clairvoyance, la télépathie et la médiumnité.
 
@@ -30,17 +26,15 @@ La glande pinéale serait capable de détecter les champs invisibles comme le ch
 
 Plus la personne maitrise son système réactionnel plus la glande pinéale développe des perceptions ultra subtiles. 
 
- 
+  
 
- 
-
-***Comment ne pas confondre une mutation d’une somatisation.\*** 
+##### Comment ne pas confondre une mutation d’une somatisation.
 
 Il est important de recevoir un diagnostic médical si l’on n’est pas sûr que ce que l’on ressent ne soit pas de l’ordre de l’intégration. Mais si après un examen médical rien n’a été décelé comme pathologique, on sait alors que l’on vit l’intégration d’un mouvement perpétuel lumière et que l’on est en chemin vers l’intemporalité. 
 
  
 
-***Si nous voulons aider les autres, il est important que nous sachions distinguer les somatisations 3D des sensations nouvelles qui apparaissent dans la 4D.\***
+##### Si nous voulons aider les autres, il est important que nous sachions distinguer les somatisations 3D des sensations nouvelles qui apparaissent dans la 4D.
 
 Les somatisations proviennent d’une répétition d’excès d’hormones (exemple : quelqu’un vivant continuellement dans des émotions négatives comme la peur ou la colère libère sempiternellement des excès d’hormones, qui à la longue peuvent mettre le corps en état de souffrance physique et créer alors une maladie psychosomatique, comme une colite, entérocolite, gastro-entérite, gastrite, pyélonéphrite etc...) ou plus grave : un cancer.
 
@@ -50,7 +44,7 @@ Lors de mes conférences, j’ouvre régulièrement un débat sur les sensations
 
  
 
-***Prenons conscience que les mouvements perpétuels lumière sont obligatoirement suivis d’une intégration-évolution chez l’être humain.\***
+##### Prenons conscience que les mouvements perpétuels lumière sont obligatoirement suivis d’une intégration-évolution chez l’être humain.
 
 Et tant qu’une phase d’intégration n’est pas complètement réalisée, on ne peut pas capter un mouvement lumière plus élevé, ce qui peut laisser actuellement beaucoup de personnes en stagnation. 
 
@@ -58,7 +52,7 @@ Et suivant le système réactionnel de chacun, si l’amygdale est encore surexc
 
  
 
-***Depuis quelques années, beaucoup de personnes stagnent dans des phases d’intégration.\***
+##### Depuis quelques années, beaucoup de personnes stagnent dans des phases d’intégration.
 
 Les personnes qui vivent en conscience les mouvements perpétuels lumière, vont accélérer leur passage vers l’intemporalité. 
 
@@ -68,11 +62,13 @@ Par exemple, lorsqu’une angoisse ressurgit, si elle est refusée, elle provoqu
 
  
 
-***J’ai maintenant la preuve que la fibromyalgie est en fait une stagnation de la mutation\***
+##### J’ai maintenant la preuve que la fibromyalgie est en fait une stagnation de la mutation.
 
 Une affection récemment apparut comme la fibromyalgie est en fait une stagnation d’une phase d’intégration. Ce qui m’a surpris dans cette soi-disant maladie, c’est qu’elle a tous les symptômes de la mutation. La fibromyalgie est apparu il y a à peu près 17 ans, date du début de l’Inframonde galactique et de la mutation collective. Après en avoir discuté avec plusieurs amis médecins avant-gardistes, nous en sommes arrivés à cette conclusion : la fibromyalgie est une stagnation entre deux mouvements perpétuels lumière, car ceux qui font un travail de respiration du chakra du Cœur ou une pratique spirituelle ont vécu la libération de cette soi-disant maladie.
 
-***J’ai pu constater que lorsqu’une personne dépasse la stagnation de sa phase d’intégration, elle se libère de la fibromyalgie.\***
+
+
+##### J’ai pu constater que lorsqu’une personne dépasse la stagnation de sa phase d’intégration, elle se libère de la fibromyalgie.
 
 De nombreuses personnes qui souffraient de fibromyalgie ont vu leur maladie disparaître après être venues aux séminaires ou ateliers d’interconnexion du Cœur. 
 
@@ -84,7 +80,7 @@ Ainsi, grâce à l’interconnexion du Cœur, la stagnation de sa mutation dans 
 
  
 
-***Cet autre\*** ***exemple prouverait que la stagnation d’une phase d’intégration peut entretenir des douleurs permanentes.\*** 
+##### Cet autre exemple prouverait que la stagnation d’une phase d’intégration peut entretenir des douleurs permanentes.
 
 En 2009, j’ai été contacté par un ostéopathe qui m’a fait part de certaines interrogations. Il m’a révélé qu’il se retrouvait confronté à des sensations complètement inconnues qui se manifestaient chez certains patients. Voici ses propos : *«* *Avant, lorsque je faisais une manipulation à une personne, je ne la revoyais pas avant trois mois. Mais maintenant, je me retrouve confronté à des personnes ayant des douleurs aux épaules qui ne disparaissent pas après la séance. Je revois la personne la semaine suivante et j’ai beau refaire une manipulation, rien ne change. C’est en lisant ton livre "Se préparer pour 2012*", *que j’ai compris que ces douleurs réfractaires venaient certainement d’un processus de mutation.* *»*
 
@@ -98,25 +94,21 @@ Par la suite, beaucoup de thérapeutes confrontés à ce processus de stagnation
 
  
 
-***Un changement de conscience accompagne le changement vibratoire\*** 
+##### Un changement de conscience accompagne le changement vibratoire.
 
 Lorsque nous devenons réceptifs aux subtils changements vibratoires qui régissent maintenant constamment notre planète, ces nouvelles sensations feront partie intégrante de notre vie : cela pourra nous donner l’impression que l’ancienne dimension est maintenant loin derrière, comme si elle n’avait jamais existé pour nous. 
 
 Ces prises de conscience sont dues au fait que nous commençons à nous relier de plus en plus fréquemment et consciemment aux mouvements perpétuels lumière qui ouvrent notre centre du  chakra du cœur et notre conscience à la connaissance universelle et chaque retour en 3D se vivra de façon de plus en plus pénible pour nous.
 
- 
+  
 
- 
-
-***En tant qu’éveilleur du Nouveau Monde nous ouvrons les voies de l’ère nouvelle.\***
+##### En tant qu’éveilleur du Nouveau Monde nous ouvrons les voies de l’ère nouvelle.
 
 Les éveilleurs du Nouveau Monde n’ont pas un rôle facile car ils sont raillés pour leurs idées novatrices qui dérangent. Rappelons-nous les paroles du Christ qui disait : *« quand on vous persécutera en mon nom, vous saurez que le temps est proche. »* Mais je sais intuitivement que nous serons récompensés, en ayant accès à la permanence de l’intemporalité. Beaucoup de personnes viendront chercher du réconfort auprès de nous, lorsque le monde basculera dans l’Amour : car qui dit Amour pour les uns, dit résurgence des mémoires pour les autres. Il faudra alors les aider à gérer toutes leurs résurgences qui s’apparenteront à un chaos intérieur pour que l’Amour prenne place en eux. 
 
- 
+  
 
- 
-
-***Depuis quelques années, nous sommes perturbés la nuit ? Nous nous réveillons plusieurs fois dans la nuit sans raison apparente.\***
+##### Depuis quelques années, nous sommes perturbés la nuit ? Nous nous réveillons plusieurs fois dans la nuit sans raison apparente.
 
 L’intégration du changement vibratoire se déroule aussi la nuit. Un grand nombre de personnes ont des troubles du sommeil plus fréquents, avec des rêves très intenses où l’on se sent très impliqué. Ces troubles peuvent s’accompagner de brusques réveils sans raison apparente. 
 
@@ -132,17 +124,11 @@ Pendant cette agitation, il s’agira alors de ressentir cet état sans le refus
 
  
 
-*Nous ressentons des effets subtils lors du changement vibratoire.*
+##### Nous ressentons des effets subtils lors du changement vibratoire.
 
 Le passage de la lumière et de l’Amour sont très agréable et subtils, comme une sorte de béatitude et de grâce. La résonance avec l’énergie Divine provoque des vibrations délectables sur le corps, et au centre du chakra du Cœur.  
 
- 
-
- 
-
- 
-
-***L’intuition et la résonance se développent.\***  
+#####  L’intuition et la résonance se développent.
 
 On a le sentiment de pouvoir deviner, voire d’anticiper les choses : le téléphone sonne et nous savons intuitivement qui appelle car quelques secondes auparavant, nous étions en résonance par la pensée avec la personne.
 
@@ -152,7 +138,7 @@ De délicieuses perceptions s’installent dans notre centre du Cœur pour nous 
 
  
 
-***Pendant notre passage vers l’intemporalité, nous développons encore plus la faculté d’entrer en résonnance avec les autres.\***
+##### Pendant notre passage vers l’intemporalité, nous développons encore plus la faculté d’entrer en résonnance avec les autres.
 
 Actuellement, les personnes qui évoluent vers l’intemporalité, développent leur faculté d’entrer en résonance avec les autres grâce à la mutation de leurs perceptions sensorielles, qui sont passées du stade primaire à un niveau plus subtil. 
 
@@ -160,7 +146,7 @@ Cela signifie que lorsqu’elles se connectent à une personne par l’interconn
 
  
 
-***La Création et l’évolution de notre monde, ce sont terminées lors du 117ème passage évolutionnaire. Cela signe la fin de l’ascension planétaire ordonnée par l’Esprit Divin.\***  
+##### La Création et l’évolution de notre monde, ce sont terminées lors du 117ème passage évolutionnaire. Cela signe la fin de l’ascension planétaire ordonnée par l’Esprit Divin.
 
 Maintenant les 117 mouvements perpétuels sont présents et réunis autour de la terre et dans tous les aspects de la création, pour ne faire qu’une seule force et préparer ceux qui ont effectué leur intégration au changement vibratoire, à se relier à l’éternel par le centre du chakra du Cœur. 
 
@@ -172,7 +158,7 @@ L’ensemble des mouvements perpétuels lumière céleste forme un halo éternel
 
  
 
-***Avant le 28 octobre 2011, les consciences humaines recevaient les mouvements perpétuels lumière ordonnés par l’Esprit Divin.\*** 
+##### Avant le 28 octobre 2011, les consciences humaines recevaient les mouvements perpétuels lumière ordonnés par l’Esprit Divin.
 
 En effet, avant le 28 octobre 2011, l’évolution du Monde se faisait suivant une intention donc une intelligence, un système sans faille (nommé comme nous l’avons vu auparavant, l’Intelligence de l’Esprit Divin) qui projetait, par le mouvement perpétuel (ou le créateur), une succession d’impulsions et d’accélérations qui ont permis une organisation évolutive par des sauts quantiques : l’ère minérale, végétale, animal, humaine. 
 

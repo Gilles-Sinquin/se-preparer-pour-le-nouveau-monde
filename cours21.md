@@ -1,18 +1,18 @@
-***Cours 21 : se préparer pour le Nouveau Monde par la connexion au\*** 
+### Cours 21 : se préparer pour le Nouveau Monde.
 
-​                            ***Silence.\***
+​                      
 
  
 
 **En 5D il n’y a plus de techniques, tout passe par la respiration du chakra du Cœur.**
 
-Le temps du Soi intemporel est arrivé et avec lui le temps sans temps. 
+- Le temps du Soi intemporel est arrivé et avec lui le temps sans temps. 
 
-C’est le temps de l’ascension vers l’éternel  et de la résurrection qui mène à la grâce. 
+- C’est le temps de l’ascension vers l’éternel  et de la résurrection qui mène à la grâce. 
 
-C’est le temps de la manifestation de l’Energie Divine.
+- C’est le temps de la manifestation de l’Energie Divine.
 
-C’est le temps où le tout s’exprime par l’Esprit Divin.
+- C’est le temps où le tout s’exprime par l’Esprit Divin.
 
  
 
@@ -22,9 +22,7 @@ Cette vie temporaire s’est toujours reconduite par la dure loi du Karma (attra
 
  
 
- 
-
-***La planète vibre chaque jour, chaque heure, chaque minute, en fréquences plus élevées avec l’Esprit Divin et cela sans cesse jusqu’à l’intemporalité\***.
+##### La planète vibre chaque jour, chaque heure, chaque minute, en fréquences plus élevées avec l’Esprit Divin et cela sans cesse jusqu’à l’intemporalité.
 
 Actuellement, la libération des énergies lourdes de la troisième dimension ressurgit de plus en plus dès l’instant où nous sommes reliés au chakra du Cœur et dans le Silence.
 
@@ -36,7 +34,7 @@ Et que nous demande l’Esprit Divin : c’est d’être participatif au Nouveau
 
  
 
-***Cette évidence qui n’a besoin d’aucune interrogation, ni remise en question, nous place d’office dans le : c’est Là.\***
+##### Cette évidence qui n’a besoin d’aucune interrogation, ni remise en question, nous place d’office dans le : c’est Là.
 
 Le ‘’c’est Là’’ nous dit intérieurement : « veux-tu participer avec moi au Nouveau Monde, non pas celui de la vie provisoire, mais celui de l’éternel, là où se trouve l’incréé lee Silence et l’Amour ? »
 
@@ -44,7 +42,7 @@ L’intelligence de l’Esprit Divin se déploie sur la planète. La lumière se
 
  
 
-***La complétude nous conduit directement à l’incréé, au-delà de l’espace-temps, au-delà de nos cinq sens, au-delà des limitations de cette vie sous-lumineuse.\*** 
+##### La complétude nous conduit directement à l’incréé, au-delà de l’espace-temps, au-delà de nos cinq sens, au-delà des limitations de cette vie sous-lumineuse.
 
 La complétude… c’est aussi l’évidence manifestée par l’Amour qui jaillit comme une révélation lorsque nous renonçons à toutes les illusions et croyances de cette vie temporaire. 
 
@@ -56,13 +54,13 @@ Il nous a fallu préparer la venue du Soi intemporel par une structure ascension
 
  
 
-***Dans l’établissement de l’éternité, il nous faut renaître non pas par la réincarnation comme dans l’ancien monde mais par la résurrection (renaitre en Amour).\*** 
+##### Dans l’établissement de l’éternité, il nous faut renaître non pas par la réincarnation comme dans l’ancien monde mais par la résurrection (renaitre en Amour). 
 
 Naître en l’éternité c’est ne plus vivre l’illusion du moi, c’est la pleine conscience de tous les mécanismes de la création sous-lumineuse qui nous faisait stagner dans l’ignorance et la séparation, ce n’est pas non plus les fuir mais les transmuter par l’Energie Divine. Car lorsque l’on a vécu la purification de notre conscience psychique, nous n’avons plus aucun doute sur ce que peut représenter la complétude, l’absolu, l’éternité. Là est la renaissance finale, qui devient une communion entre notre conscience purifiée et l’incréé. 
 
  
 
-***De la 3D vers la 4D, on passe de l’ego au cœur et dans la 5D du cœur à l’absolu.\***
+##### De la 3D vers la 4D, on passe de l’ego au cœur et dans la 5D du cœur à l’absolu.
 
 Et pour passer de l’égo au cœur, il faut se libérer de l’illusion de la peur. Celui qui est encore dans la peur, est celui qui n’est pas suffisamment dans le Silence et l’Amour, car il est enfermé au sein de la dimension émotionnelle de la 3D, car toutes les réponses à nos interrogations sont en nous, elles nous sont données par le Silence et l’Amour. 
 
@@ -70,7 +68,7 @@ Le contraire de la peur, c’est la joie avec son sourire intérieur, c’est le
 
  
 
-***L’ amour devient inconditionnel entre deux êtres.\*** 
+##### L’ amour devient inconditionnel entre deux êtres.
 
 La disparition de l’illusion, permet une relation parfaite entre deux êtres. Dans la vie provisoire, il ne peut se concevoir une relation durable entre deux êtres que si il y a disparition de part et d’autre de l’attachement émotionnel.
 
@@ -80,7 +78,7 @@ Dès l’instant où il n’y a plus projection du désir et appropriation de l�
 
  
 
-***Bientôt, nous passerons au stade du Silence et de l’absolu.\*** 
+##### Bientôt, nous passerons au stade du Silence et de l’absolu.
 
 Après l’intégration de l’intensité de la fréquence intemporelle nous passerons à un stade totalement différent : la disparition de toutes vibrations, de tous sens primaires et de tous sons. Ceci est directement relié à l’absolu, l’ultime passage vers le Silence et l’Amour ; nous passerons alors en hyperconscience.
 
@@ -92,7 +90,7 @@ A l’inverse de la 4D où l’on intègre les sensations dues à chaque mouveme
 
  
 
-***En 5D, il n’y a rien d’autre à faire que de rester dans le centre du chakra du Cœur.\*** 
+##### En 5D, il n’y a rien d’autre à faire que de rester dans le centre du chakra du Cœur.
 
 Donc, pour aller à la rencontre de l’éternel, il y a juste à rester dans le centre du chakra du cœur sans rien attendre. Rappelez-vous que Bouddha a atteint l’illumination au moment où il y a renoncé, cela voulait dire qu’il n’était plus dans le désir. Donc ne pas faire, juste être.
 
@@ -102,7 +100,7 @@ Si nous décidons de vivre heureux nous le serons. Donc décidons de rester dans
 
  
 
-***Nous sommes  en chemin vers la renaissance. La renaissance, c’est le retour au mouvement primordial.\*** 
+##### Nous sommes  en chemin vers la renaissance. La renaissance, c’est le retour au mouvement primordial.
 
 Renaitre  veut dire revivre et c’est ce qui se passe actuellement pour certains qui renaissent, en vivant la rencontre avec l’éternel.
 
@@ -112,7 +110,7 @@ Quand se manifestera le grand retournement, c’est-à-dire la Cinquième Dimens
 
  
 
-***Le grand retournement c’est le stade de non-retour, lorsqu’il y aura plus d’Amour que de densité sur Terre\***.
+##### Le grand retournement c’est le stade de non-retour, lorsqu’il y aura plus d’Amour que de densité sur Terre
 
 L’Amour, par son champ magnétique va dissoudre les champs électromagnétiques de haine, de violence, de mensonges, de perversités, de doutes, de peurs etc... sur la planète et là, sera enfin la délivrance et la renaissance  pour l’humanité, qui ne connaîtra plus jamais la souffrance.
 
@@ -120,11 +118,9 @@ La renaissance  est l’ultime finalité qui plonge la conscience de l’Homme v
 
 La renaissance  pour l’homme, c’est quand l’éternel a pris place dans son corps physique et sa conscience, cependant, la structure physique jusqu’à sa finalité, fera partie de la vie de l’individu, il ne se dématérialisera d’aucune manière, Bouddha est l’exemple vivant de l’homme qui a connu la renaissance, l’éternel, l’illumination et qui est resté dans sa structure physique jusqu’à la fin de sa vie.
 
- 
+  
 
- 
-
-La Résurrection des morts
+#### La Résurrection des morts
 
  
 
@@ -136,11 +132,9 @@ Ce jour-là, des Sadducéens, gens qui disent qu’il n’y a pas de résurrecti
 
  
 
-*Depuis le changement vibratoire et l’évolution des mouvements perpétuels lumière autour de la terre  forment un halo de haute fréquence, les désincarnés qui ont le centre du chakra du cœur ouvert vivent la résurrection.*  
+##### Depuis le changement vibratoire et l’évolution des mouvements perpétuels lumière autour de la terre  forment un halo de haute fréquence, les désincarnés qui ont le centre du chakra du cœur ouvert vivent la résurrection.
 
- 
-
-Depuis des siècles, certaines âmes attendaient le passage de la résurrection pour se libérer, car avant 1999 la fréquence lumière céleste sur la Terre et autour de la planète ne le permettait pas. 
+ Depuis des siècles, certaines âmes attendaient le passage de la résurrection pour se libérer, car avant 1999 la fréquence lumière céleste sur la Terre et autour de la planète ne le permettait pas. 
 
 Mais maintenant, depuis l’inframonde galactique, l’humanité vit simultanément l’Ascension planétaire et la Résurrection des êtres désincarnés qui ont le centre du chakra du cœur ouvert.
 
@@ -148,19 +142,19 @@ Depuis 1999, les mouvements lumière céleste évolutifs par leur fréquence vib
 
  
 
-*Version biblique* 
+**Version biblique** 
 
 « Le ‘’dernier jour’’, au son de la trompette, nos corps ressusciteront de la tombe dans laquelle ils avaient été posés. Les méchants, non repentis, ressusciteront eux aussi, mais ce sera pour la honte et la séparation éternelle d'avec Dieu (Daniel. 12: 2). Les corps des croyants, eux, ressusciteront dans l'incorruptibilité, comme des instruments parfaits de leur personnalité exempte de tout mal (1 Cor. 15: 42-44), et ils seront tous transformés en l'image de Christ. »
 
  
 
-***Ma vision personnelle sur cette version biblique :\*** 
+##### Ma vision personnelle sur cette version biblique :
 
 Il n’y a ni bons ni méchants, seulement des êtres cristallisés d’émotions denses (haine, colère, souffrance…) qui ont fermé leurs cœurs (restant donc séparés de leur énergie divine et du passage des mouvements lumière) ou des êtres dans l’amour (qui ont leur centre du chakra du cœur ouvert). 
 
  
 
-***La résurrection, peut se traduire comme la possibilité de ne plus ramener tout à soi mais à donner tout de soi\***.
+##### La résurrection, peut se traduire comme la possibilité de ne plus ramener tout à soi mais à donner tout de soi.
 
 Par le chakra du Cœur, en effet quand on donne on ouvre un champ magnétique d’Amour pour donner, et par ce champ, en retour par loi d’attraction se véhicule tout ce que nous avons besoin pour vivre, ce sont les cadeaux Divins.
 
@@ -172,7 +166,7 @@ Maintenant, il faut passer à la tâche qui est d’expanser l’Amour. Quel int
 
  
 
-***A propos de l’intention\*** 
+##### A propos de l’intention
 
 En 5D, il n’y a plus d’intention, les manifestations sont des créations directes qui s’expriment de façon spontanée, elles ne sont plus guidées ni contrôlées. Cela s’apparente à la cessation totale de toute activité cérébrale. Le mental n’a plus aucun rôle, la conscience de l’instant présent élimine toutes possibilités de recherche, et en particulier la recherche spirituelle.
 
@@ -180,23 +174,19 @@ Celui qui s’établit dans l’instant présent et vit l’absolu, ne peut plus
 
  
 
-***Quand nous appelons l’Esprit Divin, soyons dans le cœur, car il ne peut nous entendre que de l’éternel, c’est à dire en passant par le centre du chakra du Cœur.\***
+##### Quand nous appelons l’Esprit Divin, soyons dans le cœur, car il ne peut nous entendre que de l’éternel, c’est à dire en passant par le centre du chakra du Cœur.
 
 Quand nous commencerons à entrer réellement dans l’incréé, c’est-à-dire que notre corps de lumière, le silence et l’Amour prennent le relais sur notre corps physique, pendant ces moments nous nous évaporons dans l’instant présent. Les révélations apparaissent spontanément et sont suivies par des prises de consciences car le Silence et l’Amour ont leur propre intelligence et solutionnent tout ce qui nous autolimite. Comme par exemple : beaucoup d’éclaircissements au niveau du fonctionnement de l’univers invisible se révèlent. 
 
  
 
- 
-
- 
-
-***Nous devenons des vortex d’Amour c’est ce qui établit le champ magnétique d’Amour céleste permanent autour de la Terre.\***
+##### Nous devenons des vortex d’Amour c’est ce qui établit le champ magnétique d’Amour céleste permanent autour de la Terre.
 
 Ce qui nous permet la Co-création consciente, c’est à dire tout ce que nous pensons se manifestera. Si nous avons une pensée contraire à l’Amour, l’esprit Divin s’éloigne mais ne disparaît pas de nous. Nous assistons à l’installation de la renaissance en nous et constatons que nous devenons la permanence de l’Amour. L’Amour consume toutes les impuretés qui restent encore accrochées à notre mental. 
 
  
 
-***Nous n’aurons  plus besoin de commémoration spéciale ou d’alignements spéciaux de planètes comme supports car c’est la permanence éternelle qui s’installe en nous\***.
+##### Nous n’aurons  plus besoin de commémoration spéciale ou d’alignements spéciaux de planètes comme supports car c’est la permanence éternelle qui s’installe en nous.
 
 Par la permanence de l’Amour, soyons libérés de toutes commémorations qui nous retiennent encore par des croyances dans le passé en n’adhérant à plus rien du passé.
 
@@ -206,7 +196,7 @@ Réfléchissons : par exemple, si nous donnons plus de valeur à des cristaux qu
 
  
 
-***La résonnance du Cœur, c’est le cœur qui s’ouvre et qui accueille, c’est au-delà des mots, il n’y a plus d’enseignement.\***
+##### La résonnance du Cœur, c’est le cœur qui s’ouvre et qui accueille, c’est au-delà des mots, il n’y a plus d’enseignement.
 
 L’intelligence du cœur nous place au sein de la vérité éternelle, car par la reliance à l’Amour nous avons capté les informations au-delà du visible, nous avons communiez avec l’indicible.
 
@@ -214,7 +204,7 @@ Ne nous interrogeons  plus sur ce qui ce passe à l’extérieur de notre centre
 
  
 
-***Soyons l’Amour éternel, car ce qui n’a pas de finalité ne peut être mesuré. C’est l’instant libre et éternel accueillant la vie dans la joie, la paix et l’authenticité.\*** 
+##### Soyons l’Amour éternel, car ce qui n’a pas de finalité ne peut être mesuré. C’est l’instant libre et éternel accueillant la vie dans la joie, la paix et l’authenticité.
 
 Laissons-nous renaitre, par le refrain de l’Amour en nos cœurs, fêtant ainsi le Nouveau Monde. Ecoutons le Silence (la rengaine de nos Cœurs) car il exprimera toujours la magnificence de l’Esprit Divin dans ce Nouveau Monde.
 
@@ -222,39 +212,7 @@ Dans nos absences intemporelles, écoutons le Silence de notre chakra du Cœur s
 
  
 
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
-***Le Nouveau Monde arrive enfin\***
+#####  Le Nouveau Monde arrive enfin.
 
 Notre délivrance arrive, et elle passe par la Connaissance que nous avons incorporée au fur et à mesure des révélations reçues pendant notre ascension. Nous vivons désormais l’ascension planétaire et nous surfons sur les plus hautes fréquences vibratoires que nous contemplerons éternellement.
 
@@ -262,13 +220,13 @@ Nous commençons à observer les fruits de la Connaissance qui s’est expansée
 
  
 
-***Projetons nous maintenant dans ce Nouveau Monde que l’on peut associer à l’Éternel, à l’Incréé et l’Unicité, là où nos consciences vibrent à l’unisson avec l’Éternel ?\*** 
+##### Projetons nous maintenant dans ce Nouveau Monde que l’on peut associer à l’Éternel, à l’Incréé et l’Unicité, là où nos consciences vibrent à l’unisson avec l’Éternel ?
 
 Nous sommes tous dans la joie et la paix suprême. Rien ne peut plus nous faire peur, car la peur n’existe plus. Dans la nouvelle conscience d'Amour, plus rien n’occasionne de troubles. La conscience absolue est partout, et rien ne dégrade les pensées car l’esprit reste continuellement pacifié. Nous vivons dans une expansion permanente d'Amour. La comparaison, la différence et la compétition n’existent plus, les classes sociales disparaissent, le temps n'existe plus. Les jeunes et les anciens ne sont plus en lutte constante car l’ego n’existe plus. Comme la peur n’existe plus, la fin du monde provisoire se vit comme l’occasion ultime de vibrer avec la Source Divine.
 
  
 
-***Dans ce Nouveau Monde de Paix et d’Amour, nul n’est exténué, déprimé, inquiété ou dévalorisé.\*** 
+##### Dans ce Nouveau Monde de Paix et d’Amour, nul n’est exténué, déprimé, inquiété ou dévalorisé.
 
 Lorsque l’Amour se manifeste en nous, nous nous retrouvons pacifiés dans un état de grâce. Rien ne peut, dans ce cas, se décider seul. C’est tout le groupe qui pense Amour et toutes les décisions sont prises à l’unisson par le groupe.
 
@@ -282,19 +240,9 @@ Dans ce Nouveau Monde toute vie est sous le règne de l’Éternel.
 
 Dans ce Royaume Céleste, nous sommes Amour. Nous vivons et vibrons en pure harmonie avec toutes les dimensions et tous les mondes stellaires. 
 
- 
+  
 
- 
-
- 
-
- 
-
- 
-
- 
-
-**Le Nouveau Monde s’installe progressivement…**
+ **Le Nouveau Monde s’installe progressivement…**
 
 C’est le Temps où l’Esprit Divin s’exprime en tous et dans le Tout.
 
@@ -332,9 +280,7 @@ En commençant chaque action connectez-vous par le chakra du Cœur avec l’espr
 
 Ainsi vous ne vous sentirez jamais séparé de lui c’est cela la grâce.
 
- 
-
- 
+  
 
 **L’action librement accepté c’est le mouvement primordial Amour** 
 
@@ -350,9 +296,7 @@ Seule l’action qui passe par le centre du chakra du Cœur délivre rien d’au
 
 **L’homme 3D ne peux pas donner car dans son fonctionnement mental, il est plus proche de la constitution du mammifère, il ne donne pas, il prend.**
 
- 
-
-L’homme 3D est centré que sur lui-même, il ne se réjouit que de ce qui est à lui, ses biens matériels, l’attachement émotionnel envers son conjoint et ses enfants, sa nourriture, s’il a faim il se rassasie et cela lui suffit.il vit dans une conscience qui s’appelle lui-même .il vit à l’intérieur de son moi, il l’absorbe car il centre tout sur lui-même.
+ L’homme 3D est centré que sur lui-même, il ne se réjouit que de ce qui est à lui, ses biens matériels, l’attachement émotionnel envers son conjoint et ses enfants, sa nourriture, s’il a faim il se rassasie et cela lui suffit.il vit dans une conscience qui s’appelle lui-même .il vit à l’intérieur de son moi, il l’absorbe car il centre tout sur lui-même.
 
  
 
@@ -362,15 +306,9 @@ L’homme Intemporel vibre dans le Soi et c’est incommensurable car remplit d�
 
 C’est l’HOMME INTEMPOREL qui délivre, car par son corps de lumière se diffuse l’Amour, il est fait pour AIDER, TRANSMETTRE, DONNER.
 
- 
+ Avant de transmettre, donner, aider purifiez l’instant en vous mettant dans le chakra du Cœur ainsi vous vous coupez du monde sous lumineux, et vous vous en détachez jour après jour.
 
-Avant de transmettre, donner, aider purifiez l’instant en vous mettant dans le chakra du Cœur ainsi vous vous coupez du monde sous lumineux, et vous vous en détachez jour après jour.
-
- 
-
- 
-
- 
+   
 
 **Où est l’incréé, le Silence, le néant, l’infini, le UN.**
 
@@ -408,25 +346,17 @@ Dans chaque action souriez du Cœur.
 
 Quand vous souriez du Cœur l’énergie divine passe de votre chakra du Cœur à votre chakra laryngé, jusqu’à votre bouche et vous illumine le visage. 
 
- 
 
- 
-
- 
 
  **C’est l’Esprit Divin qui donne à travers celui qui donne** 
 
 L’homme n’est plus fait pour prendre et garder pour lui mais pour donner, si l’homme prends tout lui sera retirer, pour qu’il apprenne à donner et que l’on ne peut être heureux que si l’on donne.
 
- 
-
- 
+  
 
 **Appelez la parfaite Plénitude et vous serez la Plénitude**
 
 Reliez-vous au chakra du Cœur et quand vous êtes dans l’incréé appelez la parfaite Plénitude et vous serez la Plénitude
-
- 
 
 Servez-vous de la Plénitude qui délivre : si vous envoyez l’intention de vous délivrer de vos peurs mettez-vous en respiration du Cœur appelez la Plénitude et la Plénitude va vous délivrer.
 
@@ -454,7 +384,7 @@ La présence Divine ne peut se manifester que dans la joie.
 
  
 
-Je vous aime 
+#### Je vous aime
 
  
 

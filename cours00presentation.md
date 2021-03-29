@@ -2,7 +2,7 @@
 
 
 
-## Se préparer pour le Nouveau Monde par la connexion au Silence
+## Se préparer pour le Nouveau Monde
 
 
 
@@ -14,14 +14,14 @@ Depuis 2004 je parcours les villes de France par des conférences et ateliers po
 
 
 
-***Le passage actuel de la 3D vers la 5D, nous invite à nous préparer et nous ouvrir pour accueillir le Nouveau Monde.***
+##### Le passage actuel de la 3D vers la 5D, nous invite à nous préparer et nous ouvrir pour accueillir le Nouveau Monde.
 
 Actuellement l’énergie Divine, nous aide à évoluer vers la cinquième dimension. Monde de l’Amour et du Silence tant attendu mais surtout de vivre en conscience ce passage de grandes transformations énergétiques, sensorielles, mémorielles et physiques que beaucoup traversent actuellement et que nous pouvons nommer mutation, transition, ou changement vibratoire. 
 L’énergie divine  attend que chacun d’entre nous, à son propre rythme, contacte son Soi intemporel par l’intermédiaire de son centre du chakra du Cœur et s’élève vers l’incréé (le Silence) et l’éternel. C’est là, que nous vivons la preuve de l’Esprit Divin, qui n’est autre que Présence, Silence et Amour. Lorsque nous le vivons, nous savons alors, par notre Soi Intemporel, que nous nous sommes élevés dans le mouvement primordial Amour  du « JE SUIS AVEC LE TOUT ». La connaissance est avec nous, tout comme la compassion et notre puissance de l’intention devient sans limite.
 
 
 
-***Beaucoup de personnes ressentent une mutation en eux depuis quelques temps.*** 
+##### Beaucoup de personnes ressentent une mutation en eux depuis quelques temps.
 
 Un grand nombre de personnes ressentent effectivement des manifestations sensorielles différentes de celles qu’elles ressentaient il y a quelques années. Ce changement provoque un état d’Unicité et nous élève au-delà de l’espace et du temps. Actuellement, ceux qui vivent le Soi intemporel, sont des véhicules qui expansent l’Amour et la connaissance à la communauté mondiale. 
 
@@ -40,7 +40,7 @@ L’ascension planétaire qui œuvre actuellement, nous mène vers le Soi Intemp
 
  
 
-####  La respiration du chakra du Cœur installe le Soi Intemporel en nous.
+#####  La respiration du chakra du Cœur installe le Soi Intemporel en nous.
 
 Ce nouveau Souffle permet de faire respirer, précisément, le chakra du Cœur et de purifier, transmuter tout ce que nous y conduisons par nos intentions. Cette nouvelle respiration nous reconnecte à notre vraie nature, le Silence et l’Amour. Ainsi, une nouvelle loi d’attraction prend place et nous permet de vivre dans la paix, la joie et l’Amour et ainsi de convertir  la dualité en conscience unifiée ?
 
@@ -64,11 +64,9 @@ Ainsi nous prenons le relais de la création Divine, et devenons nous-mêmes des
 
 Depuis 1999, cette évolution planétaire nous fait vivre une mutation spirituelle, dont la finalité est la construction du Corps de lumière véhicule de l’énergie vitale et de l’Amour dont le but est d’installer cet Amour en permanence sur la planète. Notre mutation se manifeste par un changement de notre ADN, l’accélération de la fréquence vibratoire de nos chakras, l’apparition de nouvelles perceptions pour reconnaitre l’invisible, la libération de nos blocages énergétiques et la dissolution de nos mémoires émotionnelles génétiques et karmiques, par ce processus nous ascensionnons vers l’incréé, l’intemporel le Silence.
 
- 
+  
 
- 
-
-Le Nouveau Monde s’installe progressivement…
+##### Le Nouveau Monde s’installe progressivement…
 
 C’est le Temps où l’Esprit Divin s’exprime en tous et dans le Tout.
 
@@ -86,7 +84,7 @@ Maintenant relié en direct avec l’Énergie Divine et l’Esprit Divin par son
 
 
 
-***A qui s’adressent ces cours ?*** 
+#### A qui s’adressent ces cours ?
 
 Ces cours s’adressent à tous ceux qui désir installer en eux le Soi intemporel et ainsi évoluer vers la conscience Unifiée. 
 
@@ -115,17 +113,11 @@ Gilles Sinquin enseigne la connexion au Silence par la respiration du chakra du 
 
 Lors des ateliers, consultations privées ou séminaires. Il aide l’ouverture du soi intemporel chez les autres.  
 
- 
+   
 
- 
+##### C’est en 1974 que j’ai reçu une grâce par une présence Divine (un être de lumière)
 
- 
-
-C’est en 1974 que j’ai reçu une grâce par une présence Divine (un être de lumière)
-
- 
-
-Aujourd’hui, en effet, et depuis que je pratique la respiration du chakra du Cœur, tout est devenu clair : j’ai enfin compris que cette grâce reçue en avance est un canal qui me relie directement à l’Incréé, l’Éternel, l’Intemporel, à Dieu et qui me permet d’accélérer l’ouverture du chakra du Cœur aux autres et ainsi de les aider à installer leur Soi intemporel (canal qui les relie du centre du chakra du Sœur à l’incréé le Silence ). 
+ Aujourd’hui, en effet, et depuis que je pratique la respiration du chakra du Cœur, tout est devenu clair : j’ai enfin compris que cette grâce reçue en avance est un canal qui me relie directement à l’Incréé, l’Éternel, l’Intemporel, à Dieu et qui me permet d’accélérer l’ouverture du chakra du Cœur aux autres et ainsi de les aider à installer leur Soi intemporel (canal qui les relie du centre du chakra du Sœur à l’incréé le Silence ). 
 
 Lorsque je suis en relience avec une personne en interconnexion du Cœur  la fréquence s’élève ce qui permet à mon guide (l’être de lumière) de passer à travers la personne et moi-même  et ainsi d’aider la personne à se libérer de ses mémoires Karmiques car lors de mon adombrement ,il m’avait dit : je te transmet le don d’apaiser les souffrances physique et morales dans les siècles et les siècles ( ce qui veut dire les conditionnement installés dans cette vie et les mémoires  karmiques ).  
 
