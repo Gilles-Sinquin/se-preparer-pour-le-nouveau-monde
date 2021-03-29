@@ -2,6 +2,10 @@
 
 
 
+
+
+
+
 **L’ego, est le résultat de la séparation mais tout le monde peut le dissoudre pour le transformer en conscience élargie et ce n’est pas le privilège de quelques éveillés orientaux comme on aurait tendance à le supposer.** 
 
 Oui, maintenant que nous sommes en période de changement vibratoire tout devient rapide dans l’élévation de la conscience pour les occidentaux. Depuis 1999 nous recevons des mouvements perpétuels lumière céleste, qui nous permettent de vivre une initiation collective, une ascension planétaire. Il est vrai que la notion d’éveil ou d’illumination était fortement rattachée à la philosophie bouddhiste ou hindouiste, mais maintenant que la connaissance nous pénètre naturellement, nous aussi les occidentaux nous recevons les réponses spirituelles à nos interrogations : en soi, seul l’Incréé est réel car il ne peut se modifier. L'ego, lui, fait partie du créé. Ce dernier n’est que la projection de nos pensées, de nos désirs, de nos croyances, de nos mémoires, de nos blessures  et de nos intentions psychiques dans le monde de la forme et de la matière. Il est obligatoirement amené à disparaître dans le futur car, à la différence de l’Incréé, le créé n'est pas Éternel.
@@ -24,9 +28,7 @@ Par exemple, si nous pensons sur un mode de dévalorisation (je n’arriverai ja
 
  Donnons des informations différentes à nos pensées : pensons que nous sommes quelqu’un de bien (sans tomber dans une hyper-valorisation de l’égo), mettons-nous en respiration du chakra du Cœur et installons l’intention de dissoudre nos dévalorisations et qu’une nouvelle situation apparaisse pour transformer notre vie et nous verrons le résultat car n’oublions jamais que la loi d’attraction se comporte selon nos pensées, elle est en cela impitoyablement juste : nous récolterons toujours ce que nous aurons semé. 
 
- 
-
-En transcendant nos limites, nous pouvons tous avoir accès à la Connaissance Universelle, registre vibratoire du monde invisible. Nous pouvons recevoir ainsi toutes les informations pour devenir maintenant les co-créateurs du nouveau monde.
+ En transcendant nos limites, nous pouvons tous avoir accès à la Connaissance Universelle, registre vibratoire du monde invisible. Nous pouvons recevoir ainsi toutes les informations pour devenir maintenant les co-créateurs du nouveau monde.
 
  
 
@@ -88,9 +90,7 @@ Cet état correspond aussi à la mort de l'ego : nous évoluons alors progressiv
 
 La respiration du chakra du Cœur permet d’accéder à cet état, de manière plus ou moins intense, fugace ou prolongée et bientôt permanente : l’accès à cet état dépend du degré de mutation de chaque individu, ainsi que du nettoyage de leurs mémoires émotionnelles. 
 
- 
-
- 
+  
 
 **Comment peut-on définir l’Amour ?**
 
@@ -99,8 +99,6 @@ Le véritable Amour, ne peut pas s’expliquer humainement par la raison et le l
 L’esprit et l’âme sont reliés à ce domaine de pure possibilité, pour que la conscience puisse manifester le nouveau monde. L’Amour originel est le produit de la vibration (le verbe). L’Amour s’expanse à travers le corps de lumière et le centre du chakra du Cœur : c'est par cette expansion d'Amour que notre aspiration inconsciente et Eternel de retrouver l’Incréé peut être réalisée. 
 
  
-
-
 
  **Ici une lettre d’Albert Einstein à sa fille Lieserl. Grand scientifique, génie reconnu, il lui parle de la grande force de l’Amour.**
 
@@ -135,6 +133,7 @@ Lorsque nous aurons appris à donner et à recevoir cette Énergie universelle, 
 Je regrette vivement de ne pas pouvoir exprimer ce qui, dans mon coeur, a palpité silencieusement pour toi toute ma vie. Il est peut-être trop tard pour demander pardon, mais comme le temps est relatif, j’ai besoin de te dire que je t’aime et grâce à toi, j’ai atteint l’ultime réponse.
 
 Ton père : Albert Einstein ».
+
 
 
 #### Faisons un petit résumé sur l’impulsion: Le mystère de la Création
@@ -179,9 +178,9 @@ L’impulsion ordonnée par l’Intention (l’intelligence de l’Esprit Divin 
 
 
 
+
+
 **Au XXème siècle, le terme de Big Bang renvoyait l’image d’une  déflagration unique accélérée par un seul mouvement d’expansion, en un secteur précis.**
-
-
 
 Toute création est l’aboutissement d’une manifestation, une sorte de conception préétablie qui ne peut être due au hasard car elle est orchestrée par une intelligence et celle-ci en aurait conçu les plans dès la naissance de l’Univers. Après le big bang les codes des lois universelles apparaissent, environ une nanoseconde après, laissant ainsi leurs encodages dans la matière naissante.
 
@@ -268,8 +267,6 @@ Il n’y a pas de point central au Big Bang ou de direction précise dans laquel
 
  
 
- 
-
 #### Une nouvelle vision cosmologique voit le jour actuellement : Il est probable que l’espace ait été infini avant son origine.
 
 
@@ -320,9 +317,7 @@ L’originalité de la trinité (signifie trois formes) est que la destruction f
 
 ##### L'idée d'une multitude de mondes n'est pas nouvelle. Leucippe, Démocrite Épicure, Anaximène, Héraclite, Empédocle et Diogène d'Apollonie Anaximandre de Milet, philosophes et penseurs grec, la défendait déjà il y a vingt-six siècles.
 
- 
-
-Ces philosophes soupçonnaient qu’ils apparaissaient et disparaissaient pendant une période, que certains se manifestaient quand expiraient d’autres. Et ils attestaient que ce mouvement était éternel, car sans mouvement, il ne peut y avoir ni génération ni destruction.
+ Ces philosophes soupçonnaient qu’ils apparaissaient et disparaissaient pendant une période, que certains se manifestaient quand expiraient d’autres. Et ils attestaient que ce mouvement était éternel, car sans mouvement, il ne peut y avoir ni génération ni destruction.
 
 Ces nouvelles idées ont même valu le bûcher à Rome, en 1600, au philosophe italien Giordano Bruno, qui déclarait : ‘’*Le monde est infini parce que Dieu est infini. Comment croire que Dieu, être infini, aurait pu se limiter lui-même en créant un monde clos et borné ?’’*
 
@@ -339,6 +334,8 @@ Un jour qu’il se promenait en campagne les yeux rivés vers le ciel, absorbé 
  
 
 #### Il est temps de revoir la physique newtonienne qui préconise que tout fonctionne d’une manière bien prévisible.
+
+
 
 **Le Cosmos est une structure infinie d’ondes (vibrations)**
 
