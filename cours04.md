@@ -2,11 +2,7 @@
 
 
 
-
-
-
-
-**L’ego, est le résultat de la séparation mais tout le monde peut le dissoudre pour le transformer en conscience élargie et ce n’est pas le privilège de quelques éveillés orientaux comme on aurait tendance à le supposer.** 
+**L’ego, est le résultat de la séparation mais tout le monde peut le dissoudre pour le transformer en conscience élargie et ce n’est pas le privilège de quelques éveillés orientaux comme on aurait tendance à le supposer.**
 
 Oui, maintenant que nous sommes en période de changement vibratoire tout devient rapide dans l’élévation de la conscience pour les occidentaux. Depuis 1999 nous recevons des mouvements perpétuels lumière céleste, qui nous permettent de vivre une initiation collective, une ascension planétaire. Il est vrai que la notion d’éveil ou d’illumination était fortement rattachée à la philosophie bouddhiste ou hindouiste, mais maintenant que la connaissance nous pénètre naturellement, nous aussi les occidentaux nous recevons les réponses spirituelles à nos interrogations : en soi, seul l’Incréé est réel car il ne peut se modifier. L'ego, lui, fait partie du créé. Ce dernier n’est que la projection de nos pensées, de nos désirs, de nos croyances, de nos mémoires, de nos blessures  et de nos intentions psychiques dans le monde de la forme et de la matière. Il est obligatoirement amené à disparaître dans le futur car, à la différence de l’Incréé, le créé n'est pas Éternel.
 
@@ -14,7 +10,6 @@ L’ego a émergé au sein de l’espèce humaine. En effet, le mental, et donc 
 
 Pour cela, le mental doit être apaisé, pacifié, pour permettre à la conscience d’accéder au niveau de l’Incréé où rien n’est séparé, où tout existe à l’état potentiel. Ceci est d’ailleurs l’objectif de toutes les pratiques de méditation, tout comme la respiration du chakra du Cœur. 
 
- 
 
 **Les pensées sont le résultat d’une création mentale. Il faut être conscient de  ce que l’on pense, car nous sommes des créateurs. Devenons observateurs de nos pensées.**
 
@@ -30,7 +25,6 @@ Par exemple, si nous pensons sur un mode de dévalorisation (je n’arriverai ja
 
  En transcendant nos limites, nous pouvons tous avoir accès à la Connaissance Universelle, registre vibratoire du monde invisible. Nous pouvons recevoir ainsi toutes les informations pour devenir maintenant les co-créateurs du nouveau monde.
 
- 
 
 **Dans La Troisième Dimension, la conscience est soumise à l’espace-temps et toutes les actions sont densifiées.**
 
@@ -38,25 +32,21 @@ Les intérêts humains de la Troisième Dimension se portent, pour la plupart, s
 
 De plus, les cellules du corps ont une conscience limitée et interconnectée avec le mental. Si les cellules vont mal et sont malades, le mental va mal et les créations des pensées en sont affectées. La vision de la réalité passe par le filtre du cerveau et des perceptions que l'on a des objets extérieurs, ce qui auto-limite continuellement l’individu. Pour la personne en 3D, il n’y a que ce qui se voit qui est une réalité concevable.
 
- 
 
 **Comment passe-t-on d’une dimension à une autre ?**
 
-Les dimensions sont des champs vibrant à des fréquences différentes***.\*** Le passage d’une dimension à une autre s’effectue en fonction de la perception, de l’intégration mais aussi de l’ascension personnelle de chacun. Cette ascension se produit au rythme (propre à chacun) de l’intégration des mouvements perpétuels lumière. Ces mouvements ont une intensité toujours plus élevée au fur et à mesure que l’on avance vers l’ascension planétaire (ces notions sont développées plus loin dans les cours). 
+Les dimensions sont des champs vibrant à des fréquences différentes.\*Le passage d’une dimension à une autre s’effectue en fonction de la perception, de l’intégration mais aussi de l’ascension personnelle de chacun. Cette ascension se produit au rythme (propre à chacun) de l’intégration des mouvements perpétuels lumière. Ces mouvements ont une intensité toujours plus élevée au fur et à mesure que l’on avance vers l’ascension planétaire (ces notions sont développées plus loin dans les cours). 
 
- 
 
 **La planète a commencé son entrée dans la 4D par une succession de mouvements lumière à partir de 1999, ces mouvements ont eu pour effet de nous propulser de la 3D à la 5D.**
 
 Dans ce livre, je me réfère à 4 Dimensions mais les Dimensions sont illimitées car ce sont des fréquences vibratoires énergétiques séparées par des niveaux (une sorte de pallier évolutif). Par exemple le niveau vibratoire de la 3D est plus dense que la 4D, mais il est impossible de calculer l’échelle évolutive des fréquences vibratoires de la 4D. Ces fréquences peuvent se chiffrer par milliards. J’utilise les termes de 3D, 3/4D, 4D et5D, pour classer approximativement les dimensions évolutives dans ces cours. Ce sont des niveaux progressifs dont le but est l’ascension vers la 5D, bien calculés par l’intelligence de l’Esprit Divin, afin qu’il y ait évolution de la conscience pour les êtres humains pendant cette ascension planétaire. 
 
- 
 
 **Comment définir une Dimension ?**
 
 La majeure partie de l’humanité vit en 3D. Les individus en 3D sont inconscients des mouvements perpétuels lumière présents depuis 1999. La 3D compte trois variables dans l’espace : hauteur, largeur et profondeur. Ces paramètres avant 1999 formaient et limitaient les consciences humaines depuis des milliers d’années, ce qui installait une réalité illusoire chez les individus (en 3D les individus ne croient que ce qu’ils voient, tout est évalué par leurs organes sensoriels) et la notion du temps.
 
- 
 
 **Et pour la 4D ?**
 
@@ -69,7 +59,6 @@ En 5D l’élévation de la conscience constitue le moyen pour les êtres, de vi
 Il n’y a pas de durée précise pour un être humain, pour passer d’une dimension à une autre. Il doit obligatoirement assimiler l’intégration des mouvements perpétuels lumière (développé plus loin dans les cours ). 
 
 Par contre, pendant la Création et l’évolution de la planète, (de l’ère minérale à l’intemporalité), qui s’est achevé le 28 octobre 2011. Il y a eu un ordre évolutif précis sans faille, de sauts quantiques à la nano-seconde près, orchestré par l’Intention  de l’intelligence de l’Esprit Divin.
-
  
 
 **Actuellement, beaucoup d’entre nous qui vibraient auparavant en Troisième Dimension, sont maintenant capables de vibrer en Quatrième Dimension grâce à leurs nouvelles perceptions.**
@@ -77,7 +66,6 @@ Par contre, pendant la Création et l’évolution de la planète, (de l’ère 
 Nous captons maintenant des mouvements perpétuels lumière qui installent en nous de nouvelles perceptions, ce qui nous permet de vibrer avec la Conscience Universelle. Nous quittons nos anciens systèmes de croyances qui nous retenaient dans la densité. Nous percevons, maintenant en conscience, un Univers connaissance/information originelle avec des perceptions beaucoup plus élargies que celles que nous avions dans notre monde autolimité d'avant. 
 
 Cette nouvelle conscience nous propulse progressivement vers la Cinquième Dimension, l’Ascension Universelle et l’Amour, par l’ouverture du centre du chakra du Cœur et nous fait ressentir par  résonnance à quel stade d’évolution se trouvent les personnes que nous rencontrons. 
-
  
 
 **Cette fameuse résonnance vient des perceptions nouvelles, acquises dans la Quatrième Dimension et qui nous permettent de ressentir des champs vibratoires plus subtils.**
@@ -139,37 +127,29 @@ Ton père : Albert Einstein ».
 #### Faisons un petit résumé sur l’impulsion: Le mystère de la Création
 
 
-
 **La création a pu s’effectuer grâce à la présence de trois facteurs :**
-
 
 
 1/ ***L’information originel*** (la connaissance absolue)
 
 L’information contient le tout dans l’incréé, tout le non manifesté et tout ce qui se manifestera. C’est la conscience absolue, ou réside l’intelligence suprême, l’Esprit Divin.
 
- 
 
 2/ ***L’intention*** (l’intelligence de l’esprit Divin qui sollicite.)
 
 C’est l’Intelligence suprême de l’Esprit Divin dans l’incréé qui souhaite une intention, cette intention va provoquer une impulsion (la dualité : attraction/ répulsion) qui est l’origine de la création. 
 
- 
 
 3/ ***L’impulsion*** par la dualité devient le créateur, la vibration* et/ou mouvement perpétuel primordial.
 
- 
 
 L’impulsion ordonnée par l’Intention (l’intelligence de l’Esprit Divin dans l’incréé)  va accélérer par une giration l’information originel pour en faire une  vibration* et/ou mouvement perpétuel primordial. Suivant l’accélération ordonnée par l’intention l’impulsion deviendra un mouvement primordial, (l’Amour), mouvement, Energie vitale (prana), mouvement lumineux, (lumière céleste) ou mouvement sous-lumineux (matière).
 
- 
+
 
 ##### Qu’est-ce qu’une vibration ?
 
 ‘’Vibrer : se mouvoir périodiquement autour de sa position d’équilibre avec une très faible amplitude et une très grande rapidité.’’ (Dictionnaire le petit robert)
-
- 
-
 
 
 #### **L’esprit Divin dans L’incréé est l’intelligence suprême qui ordonne par l’intention.**
@@ -177,14 +157,9 @@ L’impulsion ordonnée par l’Intention (l’intelligence de l’Esprit Divin 
 #### L’impulsion (la dualité) est l’exécutant (le créateur).
 
 
-
-
-
 **Au XXème siècle, le terme de Big Bang renvoyait l’image d’une  déflagration unique accélérée par un seul mouvement d’expansion, en un secteur précis.**
 
 Toute création est l’aboutissement d’une manifestation, une sorte de conception préétablie qui ne peut être due au hasard car elle est orchestrée par une intelligence et celle-ci en aurait conçu les plans dès la naissance de l’Univers. Après le big bang les codes des lois universelles apparaissent, environ une nanoseconde après, laissant ainsi leurs encodages dans la matière naissante.
-
- 
 
 **Le big bang représente l’instant zéro. C’est à ce moment-là qu’on assiste à la naissance de l’Univers il y a 13,7 milliards d’années.**
 
@@ -192,19 +167,16 @@ Le temps a commencé à s’écouler à partir de cette date ultime. On sait mai
 
 Dans cette vibration, était inscrit tout le code génétique de notre futur Univers, une sorte d’ADN en quelque sorte. L’évolution de l’Univers va se poursuivre avec une régularité d’expansion sans faille et très précise ! 
 
- 
 
 **Le mur de Planck  qu’est-ce que c’est ?**
 
 Pour pouvoir atteindre le champ unitaire ultime (ou l’incréé) les chercheurs devraient franchir le mur de Planck : barrière entre l’incréé et la création. En effet, ce mur incarne la limite de la validité des concepts de la physique, qui sont utilisés pour informer ce qui s’est passé après le mur de Planck, mais pas ce qui a eu lieu avant lui. Car nous le savons, le temps n’existe pas en amont du mur de Planck.
 
 
-
 #### La construction de ce qui est désormais appelé le modèle standard de la cosmologie est la conséquence logique de l’idée du Big Bang proposée dans la première partie du XXe siècle.
 
 
-
- **Il stipule en particulier les  points suivants :**
+**Il stipule en particulier les  points suivants :**
 
 
 Toute création est suivie d’un principe d’ascension. Il y a une sorte de plan préétablit qui viendrait d’une intelligence supérieure. Les plans de l’univers visible étaient déjà tracés avant la naissance de l’Univers. 
@@ -235,15 +207,11 @@ Ce modèle standard, établi comme étant à l’origine de l’Univers, est app
 
 Une très sérieuse quantité d’observations astronomiques ont légitimé ces apports fondamentaux dans l’élaboration de l’univers palpable que nous connaissons. 
 
- 
-
 **Les mouvements perpétuels et l'expansion de l'Univers**
 
 L’univers dans lequel nous vivons est en dilatation et en augmentation. Nous le savons parce que les cosmologistes observent les galaxies et les associations de galaxies s'éloigner progressivement de la Terre dans l'Univers. Cette expansion/dilatation a commencé dès la formation de l'Univers.
 
 L'Univers n'a pas de milieu, parce qu'il n'a pas de limites et de ce fait il est illimité. Dans ce cas, par des mouvements accélérés homogènes et perpétuels, les groupes de galaxies emplissent totalement l’Univers et s'éloignent les uns des autres en tous points. Il n'y a pas de centre à cette extension, l'espace s’agrandit naturellement en tous points. 
-
- 
 
 **Dans ce fantastique réglage, la précision est en effet impressionnante et remarquable pour la suite de l’évolution planétaire.** 
 
@@ -253,9 +221,8 @@ Dans le principe d’évolution de la planète, les Mayas nous ont laissé les i
 
  
 
-#### **Si l’on adopte l’hypothèse du mouvement perpétuel, Le Big Bang (traduit en français par grand boum) ne peut pas être une explosion, j’émets l’hypothèse que c’est plutôt une gigantesque accélération qui s’est produite en une multitude d’endroits à la fois car l’Univers est interconnecté par des milliards de mouvements.**
+#### Si l’on adopte l’hypothèse du mouvement perpétuel, Le Big Bang (traduit en français par grand boum) ne peut pas être une explosion, j’émets l’hypothèse que c’est plutôt une gigantesque accélération qui s’est produite en une multitude d’endroits à la fois car l’Univers est interconnecté par des milliards de mouvements.
 
- 
 
 **A la place de (un) big bang, on peut donc évoquer une gigantesque phase d’accélération provoquant des milliards de mouvements perpétuels : les bigs bangs.**
 
@@ -270,7 +237,6 @@ Il n’y a pas de point central au Big Bang ou de direction précise dans laquel
 #### Une nouvelle vision cosmologique voit le jour actuellement : Il est probable que l’espace ait été infini avant son origine.
 
 
-
 **Au début du siècle dernier, il paraissait inconcevable d’imaginer que la vitesse de la lumière pouvait être dépassée.**
 
 Aujourd’hui notre compréhension de la réalité, sur l’univers visible et invisible, est en train de s’écrouler et demande donc à être totalement revisité.
@@ -281,29 +247,27 @@ La science a façonné le monde récent que nous expérimentons aujourd’hui, m
 
 En ce sens, on pourrait comparer la science à une religion, où les règles établies sont difficiles à remettre en cause, sans être exclus de la communauté et interdisant ce qui va suivre car impossible à démontrer.
 
- 
 
 **Jusqu’à un certain temps, on pensait que notre univers visible remontait au Big Bang originel il y a 13,7 milliards d’années. Mais actuellement, de nouvelles théories surgissent, avançant qu’il se trouverait dans un cycle d’enchaînement infini où interviendrait chaque fois un nouveau Big Bang…**
 
 Le Big Crunch désigne un modèle cosmologique dans lequel un univers, finit par se recontracter après une phase d’expansion, signant un nouveau redépart qui succéderait alors au  précédent univers et ainsi de suite. 
 
- 
 
-**Le scénario du Big Crunch** **et/ou multi Univers.**
+**Le scénario du Big Crunch et/ou multi Univers.**
 
 Dans la phase finale de l’Univers (la phase de contraction), la température et la densité augmenteront de nouveau, détruisant les structures matérielles comme les galaxies, les planètes, les atomes et même les nucléons. Le cosmos retournera donc à un état de vibration. Dans le cadre de ce modèle, l’espace et le temps disparaîtront avec la matière qu’ils contiennent. L’Univers atteindrait une taille minimale (vibration) (c’est en fait un big bang à l’envers) avant de rebondir pour une prochaine phase d’expansion. 
 
 L’Univers serait « emprisonné dans une boucle infinie big bang, big crunch et, à chaque nouveau Big Bang, un programme similaire recommence, d’un Big Bang à un autre …
 
- 
+
 
 Nous nous sommes habitués à considérer le Big Bang comme constituant le point de départ de l’Univers, alors que par l’hypothèse des mouvements perpétuels, l'Univers n'est pas dépendant d’un premier commencement et d’une seule réalité mais serait inclue dans une multitude de répétitions. 
 
- 
+
 
 ##### Dans l’hindouisme, la bhagavad gita parle du Big Crunch sous forme de trinité associée à des Divinités
 
- Brahma : le créateur (phase d’expansion de l’univers)
+Brahma : le créateur (phase d’expansion de l’univers)
 
 Vishnu : le protecteur (phase de stagnation)
 
@@ -323,27 +287,23 @@ Ces nouvelles idées ont même valu le bûcher à Rome, en 1600, au philosophe i
 
 Mais il y a encore seulement trois décennies, les théories décrivant des multi Univers étaient considérées comme de la métaphysique ou de l’utopie, et par le Vatican de blasphème et d’hérésie.
 
-***Rappelons l’anecdote qu’on prête à Platon, considéré comme chef de file des idéalistes*** 
+***Rappelons l’anecdote qu’on prête à Platon, considéré comme chef de file des idéalistes***
 
 Un jour qu’il se promenait en campagne les yeux rivés vers le ciel, absorbé par ses préoccupations, il tomba par mégarde dans une fosse suscitant les railleries d’une dame. Cette dernière lui reprochant d’avoir constamment la tête dans les nuages et les pieds loin du sol ferme. La saison de la cueillette d’olives arrivée, les récoltes des champs se sont avérées abondantes et le célèbre philosophe prit sa revanche en ayant prédit les conditions météorologiques grâce à sa perspicace observation du firmament. 
 
-**Comme quoi ce qui est hypothèse aujourd’hui, peut tout à fait évoluer en évidence prochainement.** 
-
- 
+**Comme quoi ce qui est hypothèse aujourd’hui, peut tout à fait évoluer en évidence prochainement.**
 
  
 
 #### Il est temps de revoir la physique newtonienne qui préconise que tout fonctionne d’une manière bien prévisible.
 
 
-
 **Le Cosmos est une structure infinie d’ondes (vibrations)**
 
 Un univers « holographique » fut postulé par Bohm, Capra, Pribam : L’Univers serait un immense hologramme, chaque galaxie, comme chaque atome, enfermant la totalité de l’Univers. Tous seraient en interconnexion les uns avec les autres par des champs. 
 
- 
 
-**Nous ne sommes pas que des réactions chimiques, mais plutôt une charge énergétique.** 
+**Nous ne sommes pas que des réactions chimiques, mais plutôt une charge énergétique.**
 
 Tous les êtres vivants forment une même énergie au sein d’un champ d’énergie primordiale et d’une multitude de champs sous-jacents, de fréquences d’énergies différentes, ce qui organise un monde multidimensionnel. La matière ne pouvant pas se diviser en petites unités indépendantes, elle est totalement insécable ce qui prouve que l’Univers est un réseau d’interconnexions multidimensionnelles, tout est connecté à tout par une multitude de mouvements perpétuels invisibles. 
 

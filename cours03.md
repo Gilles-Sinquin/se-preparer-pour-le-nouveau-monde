@@ -1,14 +1,7 @@
-###  Cours  3 : se préparer pour le Nouveau Monde 
+###  Cours  3 : se préparer pour le Nouveau Monde
 
-
-
-
-
-#####  On peut comparer les champs célestes à une infinitude de milliards de mouvements perpétuels différents.
-
+#####  On peut comparer les champs célestes à une infinitude de milliards de mouvements perpétuels différents. \
 Mouvements : magnétique, énergie vitale, lumière céleste, sous lumineux qui s’échangent les informations par des champs magnétiques, électromagnétiques. C’est une grille interconnectée, reliée par des ondes et fréquences, s’étalant dans l’espace-temps de tout l’Univers, visible et invisible, l’Homme est un être vibratoire électromagnétique qui vit et est intégré dans un monde électromagnétique. 
-
-
 
 ##### Ce que j’ai découvert dans le livre « Dialogue avec l’ange » de Gitta Mallasz a une correspondance frappante avec la description du mouvement perpétuel.
 
@@ -68,7 +61,8 @@ Pour la raison, très simple, que les mouvements Amour, énergie vitale, lumièr
 
   
 
-#### On se retrouve quand même devant une sérieuse interrogation, car lorsque nous parlons de Dieu on emploie le terme d’incréé ce qui veut dire logiquement qu’il ne peut pas créer, mais on l’associe aussi à la création de toute chose dans la bible.
+#### On se retrouve quand même devant une sérieuse interrogation, car lorsque nous parlons de Dieu on emploie le terme d’incréé ce qui veut dire logiquement qu’il ne peut pas créer, mais on l’associe aussi à la création de toute chose dans la bible.  
+
 
 Il y a un mystère. Dieu est l’intelligence de la conscience universelle qui ordonne par son esprit des intentions. Dieu n’a pas de pensée, il est l’Absolu. Toute création est reliée à l’intention donc à Dieu. La seule réponse que je vois possible est que l’Amour une fois créé cherche à s’expanser à l’infini.
 

@@ -35,8 +35,6 @@ Selon les spirituels de l’Inde, l’origine de l’Univers serait l’Akasha :
 
 Selon Laszlo, le vide quantique loin d’être vide, transporte non seulement la lumière, la gravitation et l’énergie sous ses différentes formes, mais transporte aussi de l’information ; entendue ici comme une connexion subtile quasi instantanée et non énergétique, qualifiée en science de connexions non locales. Cette information relierait les choses, particules, atomes, molécules, organismes, tout est solidaire de tout, rien n’est séparé.
 
- 
-
 **David Bohm** l’un des plus grands physiciens contemporains (1917-1992) formula une théorie appelée « ordre implicite ». Il s’agit d’un ordre caché qui imprègne chaque région de l’Espace et de l’Univers. 
 
 A la fin de sa vie David Bohm déclara : « *le champ du fini est tout ce que nous pouvons voir, entendre, toucher et décrire. Ce champ est fondamentalement ce qui est manifesté ou tangible (palpable).*
@@ -133,12 +131,7 @@ Tout vibre autour de nous à des vitesses appelées fréquences et selon des lon
 
 Certaines vibrations sont sensibles à nos sens, comme les sons, la chaleur, la lumière visible. 
 
-<<<<<<< HEAD
-
 Mais il existe des fréquences subtiles que nous venons juste de percevoir depuis 1999, la lumière céleste et les mouvements lumineux, qui accélèrent la fréquence de nos chakras. 
-=======
- Mais il existe des fréquences subtiles que nous venons juste de percevoir depuis 1999, la lumière céleste et les mouvements lumineux, qui accélèrent la fréquence de nos chakras. 
->>>>>>> 5b5d5156db56db3fe59878328267bb02a4b533d5
 
 L’Amour, accélère également la fréquence de nos chakras par le mouvement perpétuel  primordial.
 
@@ -146,14 +139,9 @@ Nous sommes des êtres vibratoires en mouvement, dans un Univers lui aussi en vi
 
 L’Esprit, L’Amour, L’énergie vitale et la lumière céleste sont l’essence de l’Univers comme elles sont celles de notre être.
 
-<<<<<<< HEAD
-
-#### Une autre version, le taoïsme, nous révèle que l’origine du monde vient du souffle (mouvement éternel et /ou énergie).
-=======
- 
 
 #####  Une autre version, le taoïsme, nous révèle que l’origine du monde vient du souffle (mouvement éternel et /ou énergie).
->>>>>>> 5b5d5156db56db3fe59878328267bb02a4b533d5
+
 
 Le processus de la création du monde est perçu comme un chemin, une voie qui est le sens premier du Tao. Dans cette conception, l'Univers n'est pas considéré comme l'œuvre d'un créateur qui fixe la matière. *« Il est un devenir spontané en perpétuel changement. »*
 
@@ -252,12 +240,8 @@ Ce paradis est décrit aussi par toutes les personnes qui ont vécu une expérie
 
 Actuellement, ce champ est aussi sollicité par la conscience humaine lors de la respiration du chakra du Cœur. Cette respiration  aide les êtres humains à accélérer leur mutation, et créer leur corps de lumière pour passer à la 4D puis ensuite à la 5 D.
 
-<<<<<<< HEAD
 
 Le champ unitaire, le champ magnétique primordial, le champ d’énergie vitale et le champ lumière céleste sont éternels, le temps n’y existe pas.
-=======
- Le champ unitaire, le champ magnétique primordial, le champ d’énergie vitale et le champ lumière céleste sont éternels, le temps n’y existe pas.
->>>>>>> 5b5d5156db56db3fe59878328267bb02a4b533d5
 
 Le temps n’apparaît que lors de la manifestation, de la matière (domaine sous-lumineux). 
 
@@ -268,12 +252,8 @@ Le temps n’apparaît que lors de la manifestation, de la matière (domaine sou
 L’Esprit Divin, ordonne une intention, s’ensuit une impulsion qui provoque une accélération fulgurante de l’information originel. Pendant cette accélération des milliards de mouvements perpétuels créent de l’énergie dense, (particules, atomes et matière) qui se véhiculent  par des champs électromagnétiques dans le but de créer l’univers visible : ce processus d’accélération gigantesque se nomme le big bang. 
 
 
-<<<<<<< HEAD
 #### Le champ sous-lumineux (l’univers visible), est, quant à lui, le fruit de la création matière. Il comprend la matière et les organismes vivants.
-=======
 
-##### Le champ sous-lumineux (l’univers visible), est, quant à lui, le fruit de la création matière. Il comprend la matière et les organismes vivants.
->>>>>>> 5b5d5156db56db3fe59878328267bb02a4b533d5
 
 Le mouvement perpétuel sous lumineux par l’électromagnétisme produit, pour l’évolution biologique de la cellule jusqu’au néocortex, une polarité de duplication, c’est-à-dire une création duale mâle et femelle : le plus et le moins (polarités électriques), attraction et répulsion (polarités magnétiques), et à partir de là, toutes les formes de dualité qui composent la création : Yin-Yang, inspiration-expiration (rythme respiratoire), anabolisme-catabolisme (rythme métabolique), diastole-systole (rythme cardiaque), solution-coagulation, concentration-dissipation, féminin-masculin, jour-nuit, haut-bas, avant-après, etc. 
 
