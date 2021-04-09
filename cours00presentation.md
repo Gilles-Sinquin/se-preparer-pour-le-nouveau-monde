@@ -76,14 +76,6 @@ Maintenant relié en direct avec l’Énergie Divine et l’Esprit Divin par son
 
 
 
-### Comment se passe l’initiation si vous vous inscrivez aux cours ?
-
-
-
-### Vous recevrez 21 cours évolutifs, théorique et pratique  qui vous serons envoyé, gratuitement sur votre boite Mail ou que vous pourrez télécharger sur le site : gilles-sinquin.com 
-
-
-
 #### A qui s’adressent ces cours ?
 
 Ces cours s’adressent à tous ceux qui désir installer en eux le Soi intemporel et ainsi évoluer vers la conscience Unifiée. 
