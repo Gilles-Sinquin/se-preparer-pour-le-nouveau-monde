@@ -1,16 +1,11 @@
 ### Cours 13 : se préparer pour le Nouveau Monde             
 
-​                        
-
- 
 
 #### Actuellement  pour se connecter à l’Incréé (le Silence) , la respiration de l’être humain se modifie, afin d’y inclure une nouvelle potentialité qui est de faire respirer le chakra du Cœur.
 
- 
 
 ##### Actuellement, par la respiration du chakra du Cœur,l’Homme peut se servir du soi intemporel pour déposer toutes les mémoires qui encombrent son inconscient.
 
- 
 
 ##### Avant tout, bien comprendre l’utilité de la respiration.
 
@@ -20,17 +15,14 @@ L’irrégularité de la respiration entretient le déséquilibre psychique, qui
 
 Si nous respirons par le chakra du Cœur nous entrons en reliance avec le Silence et nous calmons notre déséquilibre psychique, et nous installons en nous le Soi Intemporel. 
 
-  
 
-##### **Comment pratiquer la respiration du chakra du Cœur.**
+##### Comment pratiquer la respiration du chakra du Cœur.
 
- Confectionnons-nous une cordelette avec 21 nœuds, égrenons cette cordelette (faisons passer entre nos doigts et successivement chacun des nœuds comme un chapelet).
-
- 
+Confectionnons-nous une cordelette avec 21 nœuds, égrenons cette cordelette (faisons passer entre nos doigts et successivement chacun des nœuds comme un chapelet).
 
 ##### La respiration du chakra du Cœur , se pratique en quatre phases évolutives.
 
--  1/ Respiration neutralisante,
+- 1/ Respiration neutralisante,
 
 - 2/ Respiration consciente,
 
@@ -38,7 +30,6 @@ Si nous respirons par le chakra du Cœur nous entrons en reliance avec le Silenc
 
 - 4/ Respiration du chakra du cœur.
 
- 
 
 - **1 : Effectuons la respiration neutralisante 21 fois**
 
@@ -46,7 +37,6 @@ Prenons notre cordelette et à chaque nœud faisons cinq inspirs par le nez (com
 
 L’objectif de la respiration neutralisante est de stopper le mouvement sous-lumineux (l’activité cérébrale réactionnelle). En nous concentrant sur notre respiration neutralisante, nous nous installons progressivement dans l’instant présent et nous ne pouvons plus alimenter le mental : le fonctionnement hormonal de notre système limbique est donc interrompu (ou du moins très ralenti) et la libération des hormones en excès est stoppée. 
 
- 
 
 - **2 : Effectuons  la respiration consciente 21 fois**
 
@@ -54,7 +44,6 @@ Prenons notre cordelette et à chaque nœud faisons 1 respiration consciente (in
 
 Cette respiration nous connecte à la lumière céleste, nous pacifie et l’Amour commence à se véhiculer en nous. 
 
- 
 
 - **3 : Effectuons la respiration sacrée 21 fois**
 
@@ -62,7 +51,6 @@ Prenons notre cordelette et à chaque nœud : Soyons conscient de l’inspire le
 
 Nous éprouverons bientôt une légère sensation au milieu de la poitrine et une chaleur bienfaisante lors de l’expansion de l’Amour. Restons en conscience au sein de cet espace Sacré du Cœur.
 
- 
 
 - **4 : la respiration du chakra du cœur** 
 
@@ -70,7 +58,6 @@ Restons connectés au centre du chakra du cœur, soyons conscient de l’air qui
 
 Nous ne faisons  plus qu’UN avec le chakra du Cœur. Ce nouveau Souffle, permet de faire respirer, précisément, le chakra du Cœur. C’est une nouvelle respiration basée sur le Silence et l’Amour. Ainsi, nous nous relions avec l’incréé et vivons le Silence et la plénitude. 
 
- 
 
 ####  La reliance avec l’incréé : le Soi Intemporel
 
@@ -87,25 +74,19 @@ Le chakra du Cœur est le réceptacle de l’inaudible, de l’indicible (le sil
 Par la respiration du chakra du Cœur, nous venons d’installer un canal intemporel (le soi intemporel) entre notre chakra du cœur, le coronal et l’incréé.
 
 Par ce canal, l’Amour et le silence (l’Energie Divine) s’écoulent en nous. Nous expansons ainsi cet Amour en permanence, ce qui érige le Nouveau Monde.
-
  
 
-#### **Pour passer de la dualité vers l’Unité**
+#### Pour passer de la dualité vers l’Unité
 
- 
 
 Pratiquons la technique Respiration du chakra du Cœur (respiration neutralisante, respiration consciente, respiration sacrée, respiration du chakra du cœur) plusieurs fois par jour, jusqu’à la connexion **au Soi Intemporel**
 
 Pendant cette respiration, gardons-nous de retenir toutes images naissant dans notre esprit. Transmutons toutes imaginations spirituelles en les mettant dans cette respiration  afin de ne pas tomber dans le piège de l’illusion et gardons l’esprit vide pendant les respirations.
 
- 
-
- 
 
 **Effectuons la respiration du chakra du Cœur, jusqu’à ce que nous arrivions à ouvrir notre Soi Intemporel** 
 
 Quand le canal Soi Intemporel est ouvert nous pouvons alors nous mettre directement en respiration du chakra du Cœur sans passer par la phase respiration neutralisante, respiration consciente respiration sacrée.
-
   
 
 ##### Un entraînement progressif et permanent permet d’entrer directement, en quelques secondes, en respiration du chakra du Cœur.
@@ -119,12 +100,9 @@ Bien que le ressenti sensoriel se manifeste dans toutes les situations, nous fer
 Il ne sert à rien de chercher une explication aux ressentis sensoriels qui correspondent à l’intégration des mouvements lumière ni aux déblocages de mémoires. De telles tentatives d’explication risqueraient de nous déclencher de nouvelles réactions par le désir ou l’imaginaire. 
 
 Lorsque l’on se met en respiration du chakra du Cœur, l’amour ne nécessite qu’un minimum d’effort, comparé à la force de l’ego qui cherche à prendre le pouvoir sur le centre du Cœur et l’éternel. Mais quand l’ego est transcendé, l’individu n’a plus d’objectif personnel, il n’a plus qu’à être et redevenir un enfant joyeux  Rappelons-nous les paroles du Christ : « Nul ne peut pénétrer le royaume des Cieux s’il ne redevient comme un enfant. C’est à dire : amour joie, dépouillé de tous désirs et conditionnements »
-
  
 
- 
-
-#### **Comment accélérer notre ascension vers l’éternel :**
+#### Comment accélérer notre ascension vers l’éternel :
 
 - **Dans un premier temps :**
 
@@ -134,19 +112,16 @@ Selon l’intensité de l’émotionnel de chacun, cela peut être difficile pou
 
 Par ce travail quotidien, nous constaterons que nous entrons dans cette  respiration de plus en plus facilement.
 
- 
 
 Quand nous sommes dans cette respiration Divine, nous sommes dans l’impossibilité de faire une création mentale car l’Amour qui passe par notre Cœur nous pacifie. Dans cet état d’intemporalité, nous ne pouvons plus rien refouler et nos mémoires ont donc le champ libre pour se libérer.
 
 Si pendant notre libération, une création mentale veut s’effectuer, c’est que nous retournons dans le mouvement sous-lumineux. Mettons alors notre attention sur la création mentale tout en respirant par le chakra du Cœur jusqu’à sa dissolution totale, continuons la respiration jusqu’à ce que nous retournions dans l’intemporel, nous continuons ainsi à libérer notre inconscient. 
 
- 
 
 ####  la libération des mémoires cellulaires 
 
 Pendant la Respiration du chakra du Cœur les mémoires cellulaires se déprogramment. Au cas où celles–ci se manifesteraient par des sensations désagréables lors de leurs déprogrammations: Il suffira d’observer ces manifestations sensorielles désagréables sans les refuser pour accélérer la libération de ces mémoires d’une façon définitive tout en maintenant notre attention sur cette respiration. En les refusant nous redonnons de l’activité à l’amygdale cérébrale qui fabrique de nouveau de l’énergie sous-lumineuse et refoule ainsi les souvenirs et nous maintient encore dans la 3D…
 
- 
 
 - **Dans un deuxième temps :** 
 
@@ -154,41 +129,35 @@ Quand nous sommes en Respiration du chakra du Cœur, reliés à l’intemporalit
 
 Et aussi, aller rechercher sans aucun risque nos auto-limitations, nos souvenirs douloureux pour les transmuter. Car dans cet état de Silence intérieur nous ne pouvons plus redonner de la vie au souvenir.
 
- 
 
- Pour ce faire, nous devons entrer en Respiration du chakra du Cœur et lorsque nous ressentons l’Amour qui s’exprime par notre  Cœur, nous envoyons l’intention de dissoudre le champ électromagnétique qui nous relie au passé. L’intention va supprimer  ce champ qui véhicule l’énergie dense de nos anciennes croyances et convictions, et l’énergie en se dissolvant  va retourner en particules, lumière et Amour dans le vide quantique, à la place, de la densité  un champ magnétique va véhiculer l’Amour.
+Pour ce faire, nous devons entrer en Respiration du chakra du Cœur et lorsque nous ressentons l’Amour qui s’exprime par notre  Cœur, nous envoyons l’intention de dissoudre le champ électromagnétique qui nous relie au passé. L’intention va supprimer  ce champ qui véhicule l’énergie dense de nos anciennes croyances et convictions, et l’énergie en se dissolvant  va retourner en particules, lumière et Amour dans le vide quantique, à la place, de la densité  un champ magnétique va véhiculer l’Amour.
 
 Faisons l’expérience suivante : quand nous sommes en respiration du chakra du Cœur, et que nous ressentons que nous sommes  relié à l’incréé, allons rechercher un souvenir qui nous dérange et mettons notre intention de le dissoudre. Restons quelques instants connectés au souvenir jusqu’à ce qu’il devienne flou. Le lendemain, en voulant aller chercher ce souvenir, nous nous rendrons compte que nous ne le retrouvons  pas, ou peut-être pas aussi net. Mais pour ce faire, il faut être relié à l’énergie Divine, car notre amygdale alors pacifiée est dans l’impossibilité d’entrer en réaction contre le souvenir pour lui redonner de la vie ; par contre si nous ressentons un mal être n’insistons pas et revenons à la respiration du chakra du Cœur le mal être nous signale que nous ne sommes pas relié à l’incréé et que l’amygdale cérébrale essaye de réactiver la sensation pénible du  souvenir.
-
- 
 
 **Transmuter nos pensées.** 
 
 Par exemple, si nous nous surprenons à envoyer une pensée négative envers quelqu’un, nous pouvons émettre aussitôt une intention de dissoudre cette situation par l’Amour, en la mettant dans la respiration du chakra  du Cœur. En transmutant rapidement cette situation dense, l'énergie d’Amour supprime aussitôt la loi d’attraction liée à cette situation.
 
- 
-
 ##### Si nous avons eu dans le passé une rancœur envers une personne et que nous ne sommes pas sûrs de l’avoir transmutée, procédons alors de cette manière :
 
  Quand nous sommes en respiration du chakra du Cœur dirigeons notre attention et notre intention sur la situation, nous créons ainsi un lien magnétique qui permet à l’Amour de se véhiculer sur le souvenir douloureux. Puis, attendons clairement de voir intérieurement ce qui se passe en nous.
 
-- ##### 1ère prise de conscience du Cœur :
+###### 1ère prise de conscience du Cœur :
 
 Nous voyons clairement que c’est nous qui avions le problème car nous étions à l’époque dans le désir que l’autre personne se comporte selon nos attentes et comme elle ne l’a pas faite cela nous a mis en colère puis en rancœur.
 
-- ##### 2éme prise de conscience du Cœur :
+###### 2éme prise de conscience du Cœur :
 
 Nous voyons distinctement que nous étions, ainsi que la personne en grande souffrance lors de cette expérience. Nous voyons nettement toutes les créations mentales de notre ego et du sien qui cherchaient à se justifier lors de cette situation, ce qui fait naître maintenant en nous de la compassion pour elle et pour nous.
 
-- ##### 3éme prise de conscience du Cœur :
+###### 3éme prise de conscience du Cœur :
 
 Nous prenons conscience  que par loi d’attraction, c’est nous qui avions attiré cette situation par notre égo car si nous étions plus conscient, nous n’aurions pas vécu cette situation.
 
-* ##### 4éme prise de conscience du Cœur :
+###### 4éme prise de conscience du Cœur :
 
 Nous voyons la situation devenir floue et puis s’évanouir définitivement de notre inconscient. Nous ressentons lors de cette dissolution une chaleur venant de notre Cœur Sacré suivie d’une compassion pour la situation vécue. Maintenant nous sommes assurés que grâce à la respiration du chakra du Cœur ce souvenir ne pourra plus jamais se re-manifester.
 
- 
 
 ##### J’enseignais avant que je ne vive la Respiration du chakra du Cœur et le Soi Intemporel, de ne jamais aller chercher une mémoire douloureuse et de ne jamais chercher l’origine d’une mémoire qui ressurgissait.
 
@@ -196,13 +165,9 @@ Il est vrai que, j’ai toujours prêché qu’il ne fallait pas rechercher une 
 
 Par contre, en 4D et 5D, en se mettant en Respiration du chakra du Cœur, la force de l’Amour provoque une pacification et une plénitude qui empêche toute possibilité réactionnelle où rien ne peut se revivre ni se retenir pendant cette plénitude.
 
-  
-
 **La technique de maîtrise instantanée :**
 
 Elle nous permettra de rééquilibrer rapidement notre conscience psychique lorsque nous serons sous l’emprise d’une forte réaction émotionnelle, suite à des déclencheurs sensoriels imprévisibles (comme la rencontre d’une personne violente, la vision d’un accident, d’une agression, une peur, une colère, un puissant désir etc… Ou des souvenirs pénibles qui ressurgissent de l’inconscient.
-
- 
 
 D’abord, on utilise  la respiration neutralisante, pour neutraliser la multiplication réactionnelle.
 
@@ -210,10 +175,3 @@ Ensuite la respiration consciente : pour accélérer la phase d’épuisement r�
 
 Une fois la pacification du mental obtenu, on utilise l’attention pour passer à la transmutation émotionnelle. C’est-à-dire on se met en respiration du chakra du Cœur et on met la sensation de l’émotion dans la respiration jusqu’à sa dissolution. Pendant la transmutation, On fait UN avec le cœur et l’émotion, l’Amour dissout la densité.
 
- 
-
- 
-
- 
-
- 
