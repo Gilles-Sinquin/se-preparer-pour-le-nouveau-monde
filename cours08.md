@@ -1,7 +1,4 @@
 ## Cours 8 : se préparer pour le Nouveau Monde 
-
-​                      
-
   
 
 ##### En 4D, on ne doit logiquement plus alimenter le désir.
@@ -10,7 +7,6 @@ En 4D, **la respiration du chakra du Cœur** amène la pacification de l’amygd
 
 En 5D, l’Homme ne peut plus penser par ses excès d’hormones.il pense avec Amour car Il est relié au mouvement primordial, l’Amour pacifie et unifie totalement l’individu. L’instant présent est le monde du silence et de l’Amour qui s’installe car les croyances ne peuvent plus être créées, ni alimentées par le désir. 
 
-  
 
 #### Les prisonniers de la caverne de Platon
 
@@ -28,7 +24,6 @@ Nous sommes enchaînés dans cette caverne, esclaves de nous-mêmes et de notre 
 
 Cependant, s’il est de son devoir, pour l’éveilleur du Nouveau Monde, de partager son savoir, il va avoir du mal à le faire accepter par ceux qui sont restés dans la caverne. Il pourra dire ce qu’il a vu (et donc compris), mais il ne pourra jamais totalement décrire le chemin par lequel il est passé : c’est pourquoi celui qui est en chemin vers l’ascension planétaire doit entendre et accepter, à travers ce mythe, que sa vision du monde est une illusion, car fondée sur des a priori, et qu’il doit sortir de la caverne pour se mettre réellement en quête de la vérité. Pour cela, il doit faire preuve d’humilité et de simplicité, appliquer la politique de la table rase, en oubliant ce qu’il a vu dans la caverne.
 
- 
 
 ##### Nous devons maintenant choisir, comme les prisonniers de la caverne de Platon, soit l’illusion qui représente le moi, l'ego et l’inconscient, et rester prisonnier, soit l’Amour qui représente l’être, notre réalité intérieure pour enfin être libérés.
 
@@ -36,29 +31,23 @@ Ainsi libérés, nous ne faisons plus qu’Un avec l’Incréé. Cette Unité Di
 
 Il nous faut retenir que, dans le monde de l'illusion, la vérité est une interprétation différente en fonction de l’évolution de chacun. Dans ce monde, nos systèmes de croyances sont le produit de toutes les mémoires retenues dans le passé.
 
-  
 
 #### Différence entre l’esprit,  la conscience et le mental.
 
-
-
 ##### Pour les futurs éveilleurs du Nouveau Monde, il est important de savoir  comment fonctionne l’esprit,  la conscience, et ce que nous appelons le mental.
-
 
 
 - **L’Esprit** est intelligence. 
 
 L’Esprit Divin est l’intelligence suprême. Dans la religion catholique, L’Esprit à une connotation spirituelle, l’homme a aussi l’Esprit Divin en lui car il a une intelligence, mais il ne peut utiliser celui-ci que lorsqu’il dépasse la 3D.
 
- 
 
 - **La conscience** se définit comme faculté de perception de la réalité. 
 
- Elle est ce qui permet de dire "je suis conscient", c'est-à-dire "je vois la réalité". 
+Elle est ce qui permet de dire "je suis conscient", c'est-à-dire "je vois la réalité". 
 
 La Conscience est la faculté qui donne à l’individu la connaissance de sa propre existence. Cependant, la certitude intérieure que nous avons de notre existence ne peut se faire qu'en fonction de l’extérieur. Lors d’un contact extérieur, la conscience définit l’objet extérieur par rapport à la perception qu’elle en a. La perception discerne et évalue, puis selon l’évaluation, elle accepte ou refuse la situation extérieure. Dans ce dernier cas, ce refus entraîne la création d’une émotion qui s’exprime en énergie dense. Quand elle est en évolution la conscience devient le médiateur entre notre vision du créé et l’Incréé ; elle est, de ce point de vue, l’intelligence qui est reliée à la perception. 
 
- 
 
 ##### Le niveau de conscience n’est pas le même pour tous. Mais comment reconnaître à quel stade d’évolution nous en sommes ?
 
@@ -66,35 +55,29 @@ Il y a plusieurs niveaux d’évolution de conscience, et ces niveaux dépendent
 
 La conscience élargie, qui amène la lucidité dans toute situation, exige que toutes les parties du cerveau soient connectées aux mouvements perpétuels, primordial, énergie vitale, lumière céleste, car la réaction amplifiée par le mouvement sous-lumineux  empêche la connexion avec le Divin. 
 
- 
 
 ##### La conscience absolue est Unité.
 
 Pour l’être humain, l’ultime réalisation est d’être conscient de son ascension vers l’intemporalité.
 
- 
 
 - Qu’est-ce que **le mental** ?
 
  Nous avons vu que le monde de la création mentale passe par plusieurs étapes successives : la perception, l’évaluation, la réaction, la multiplication réactionnelle qui créé par un excès d’hormones la mémoire, et en dernier la phase d’épuisement réactionnelle.
 
- 
 
 ##### En 3D, les êtres humains, en grande majorité, fonctionnent encore selon leurs désirs et/ou frustrations sur le plan émotionnel.
 
 Pour les personnes en 3D, le système réactionnel est très sollicité car leur amygdale cérébrale est extrêmement surexcitée. La conséquence directe de ce fonctionnement réactionnel est que ces individus vivent en impulsions permanentes et donc en créations mentales toutes aussi permanentes. 
 
 
-
 **Une forte émotion** **déséquilibre la conscience.**
 
 Un homme en réaction amplifiée ne peut pas être conscient : sa conscience psychique est totalement submergée par la situation qui a provoqué sa réaction. Toute possibilité de connexion avec le champ primordial est stoppée et il régresse au stade animal : c’est l’exemple même de la peur panique ou de la colère furieuse. 
 
- 
 
 #### **L’amour conditionnel en 3D : cette grande illusion**
 
- 
 
 ##### L’amour émotionnel en 3D n’est qu’une illusion provoquée par un excès d’hormones, tous les gens qui croient s’aimer sont en fait dépendant d’une sensation de plaisir occasionnée par une libération excessive d’hormones.
 
@@ -104,9 +87,8 @@ En Troisième Dimension, tout le monde vit dans l’amour conditionnel. Une pers
 
 La personne qui souffre va créer un champ électromagnétique et une image détestable de son ex pour véhiculer cette haine et nourrir envers l’être tant idolâtré, la même force, mais dans le ressentiment. N’ayant pas conscience de ce qu’elle véhicule, elle multiplie sa souffrance au lieu de la transmuter. Elle projette des pensées qui sont pollueuses pour elle et la conscience collective car elle désire ardemment que l'autre souffre de la même manière que ce qu’elle ressent. La haine peut susciter un profond désir de vengeance de la part de la personne abandonnée. 
 
- 
 
-#### **En 3D, l’individu vit soit dans le passé, soit dans le futur, mais rarement dans l’instant présent**
+#### En 3D, l’individu vit soit dans le passé, soit dans le futur, mais rarement dans l’instant présent
 
 ##### Dans notre Univers sous-lumineux, nous sommes soumis à la notion de temps.
 
@@ -114,25 +96,21 @@ Lorsque l’on retourne dans le passé ou que l’on se projette dans le futur, 
 
 Si la situation dans laquelle nous retournons est une situation agréable, nous cherchons à la retenir en lui redonnant de la vie car nous aimons sa sensation. Mais cette relecture agréable sera suivie d’une souffrance car elle ne peut pas rester en permanence ; le manque va alors s’installer.
 
-Si la situation est désagréable, on revit cette relecture émotionnelle comme une reconduction permanente qui peut laisser l’individu dans un état névrotique. D’où l’intérêt de se libérer du passé et du futur, et de vivre dans un Éternel instant présent.  
+Si la situation est désagréable, on revit cette relecture émotionnelle comme une reconduction permanente qui peut laisser l’individu dans un état névrotique. D’où l’intérêt de se libérer du passé et du futur, et de vivre dans un Éternel instant présent.
 
 Le temps s’installe aussi lors d’un scénario imaginaire. Dans ce cas, l’individu se projette dans le futur et crée par une construction mentale une situation illusoire. Suivant ses peurs, il va créer une image et un champ électromagnétique qui le reliera à cette image terrifiante. Par le champ électromagnétique, il véhiculera une énergie de peur qui donnera une vie à l’image qu’il a construite, ce qui pourra provoquer une panique chez l’individu. La perpétuelle reconduction du processus, par la multiplication réactionnelle, laisse alors l’individu dans une terreur qu’il a lui-même provoquée.
 
- **L’instant présent**  
+ **L’instant présent**
 
 On ne peut lutter contre cette accélération de désordre que par le Silence de l’instant présent, l’éloquence suprême qui nous vient de l’incréé. Grâce à la respiration du chakra du Cœur, l’énergie dense se dissout pour faire place au Silence et à l’Amour, l’information/Connaissance augmente constamment et le temps disparaît, par cette  respiration, nous dépassons l’espace-temps en nous connectant à l’Incréé et l’Amour, ce qui oblige l’harmonie à s’installer de façon permanente.
 
  
-
- 
-
-#### **Les mémoires à court terme, les mémoires à moyen terme et les mémoires à long terme.** **Les mémoires à long terme sont le fameux karma dont parlent les orientaux.**
+#### Les mémoires à court terme, les mémoires à moyen terme et les mémoires à long terme.** **Les mémoires à long terme sont le fameux karma dont parlent les orientaux.
 
 #####  Toute mémoire cherche à ressurgir naturellement, de l’inconscient. 
 
 Toutes les mémoires cherchent à se déprogrammer et cela donne l’espérance que le chemin vers l’illumination est possible pour tous à condition de connaître notre fonctionnement cérébral ! 
 
- 
 
 ##### La mémoire se définit comme un encodage dans la conscience. L’ampleur de cet ancrage dépend de la répétition réactionnelle.
 
@@ -140,7 +118,6 @@ On sait maintenant que la création d’une mémoire est due à une forte réact
 
 Le tout se retient dans l’inconscient : la matière est cristallisée mais grâce à l’Esprit et à l’Amour (dans la mémoire) qui veulent toujours retourner à la maison céleste, la mémoire se décristallise pour repasser en énergie émotionnelle, particules, lumière céleste, Amour, Esprit. Elle fait le chemin inverse de sa création, hélas, l’habitude réactionnelle refoule à nouveau cette mémoire dans l’inconscient quand l’amygdale cérébrale ressent l’énergie de l’émotion désagréable. Car rappelons-nous que l’amygdale cérébrale n’accepte que ce qui est agréable en cherchant à le retenir et refuse systématiquement en le refoulant tout ce qui est désagréable.
 
- 
 
 ##### Le karma est en fait une mémoire qui devient permanente.
 
@@ -148,13 +125,12 @@ Le karma vient de la répétition sans fin d’impulsions réactionnelles, lesqu
 
 Prenons l’exemple d’une peur vécue pendant une résurgence : si l’information (peur) est refusée par l’amygdale, ce refus va provoquer une impulsion cérébrale (un mouvement sous-lumineux), laquelle va refouler de nouveau cette mémoire (de peur) : survient alors une recristallisation. Cette peur va de nouveau ressurgir et de nouveau elle sera refusée et recristallisée. Et, comme les mémoires influencent en permanence la pensée, nous reproduisons et entretenons sans cesse des comportements qui nous font souffrir mais dont nous sommes prisonniers. C’est un processus de refoulement sans fin qui nous oblige à nous réincarner.
 
-  
 
 ##### En 3D, les scénarios refoulés ressurgissent, mais sont à nouveau refoulés, encore et encore, sous l’effet du recouvrement.
 
  Ces scénarios ressurgissent sans cesse et sont chaque fois recouverts par d’autres situations agréables ou désagréables, c'est-à-dire qu’une autre situation vient recouvrir la précédente, ce qui nous empêche de prendre conscience du problème initial et ainsi de nous en libérer.
 
-Mais nous pouvons, par**, la respiration du chakra du Cœur** ou une autre technique similaire, maîtriser notre système réactionnel et nous libérer de nos mémoires récentes ou lointaines. 
+Mais nous pouvons, par, **la respiration du chakra du Cœur** ou une autre technique similaire, maîtriser notre système réactionnel et nous libérer de nos mémoires récentes ou lointaines. 
 
  
 
@@ -165,11 +141,6 @@ Mais nous pouvons, par**, la respiration du chakra du Cœur** ou une autre techn
 - **La mémoire à long terme** comme nous l’avons évoquée a pour origine un puissant impact de multiplication réactionnelle qui se prolonge sur plusieurs mois, sur une vie entière et souvent, sur plusieurs vies. Ce processus est mieux connu sous l'appellation de Karma par les Orientaux. La mémoire à long terme peut aussi se nommer le refoulement. 
 
   L'individu, dont les mémoires sont constamment refoulées, ne peut pas libérer son âme et/ou champ électromagnétique de ce qui l’alourdit. Lorsqu’il décède, l'individu est prisonnier de la gravitation terrestre par sa propre densité. Comme il possède beaucoup plus de bradyons (particules qui vont moins vite que la lumière visible) que de lumière céleste, son âme est alors attirée par la loi d’attraction, vers la matière. Son âme gravite ainsi autour de la planète Terre, jusqu'à ce qu’elle retrouve une énergie similaire lors d’une conception humaine. Il y a alors réincarnation. Si une âme possède plus de lumière céleste que de bradyons, elle est attirée par la loi d'attraction, vers le domaine super-lumineux . Dans ce cas, l’homme ne se réincarne plus, sauf s’il choisit de revenir en tant qu’Avatar.
-
- 
-
- 
-
  
 
 ##### Par ces trois exemples sur les mémoires, nous avons la preuve que le mouvement sous-lumineux dépend de l’impulsion qu’il reçoit.
@@ -180,38 +151,3 @@ Pour la mémoire à court terme il y a légère impulsion et accélération du m
 
  Pour la mémoire à long terme il y a forte impulsion et accélération du mouvement sous-lumineux, comme un mini bing bang qui cristallise la scène et la retient en otage sempiternellement par le refoulement, si l’individu n’intervient pas consciemment pour la dissoudre.
 
-  
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 

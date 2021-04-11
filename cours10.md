@@ -1,8 +1,5 @@
 ### Cours 10: se préparer pour le Nouveau Monde .                                                
 
-​                          
-
-  
 
 ####  Précisions sur le passage de la 3D à la 4D
 
